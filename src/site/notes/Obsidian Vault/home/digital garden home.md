@@ -4,5 +4,6 @@
 
 
 
-[[Obsidian Vault/home/content\|content]] 
-![3Qkt3g.png|296x167](/img/user/3Qkt3g.png)![Final_Fantasy_X_Amano.jpg|512x788](/img/user/Final_Fantasy_X_Amano.jpg)
+[[Obsidian Vault/content/content\|content]] 
+
+<iframe src="https://www.instagram.com/reel/DM9uVx5IcZn/" allow="fullscreen" allowfullscreen="" style="height: 100%; width: 100%; aspect-ratio: 1 / 1;"></iframe>
