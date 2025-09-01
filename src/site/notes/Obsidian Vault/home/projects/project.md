@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/projects/project/","noteIcon":""}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/projects/project/"}
 ---
 
 

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/to-consume/to-watch/","noteIcon":""}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/to-consume/to-watch/"}
 ---
 
 https://dolfilms.org/thegift/#watchthegift

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/content/archive/the-anatomy-of-the-arteries-of-the-human-body/","noteIcon":""}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/content/archive/the-anatomy-of-the-arteries-of-the-human-body/"}
 ---
 
 

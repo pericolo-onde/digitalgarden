@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/content/archive/bestiary/","noteIcon":""}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/content/archive/bestiary/"}
 ---
 
 

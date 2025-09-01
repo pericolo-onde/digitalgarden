@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/content/content/","noteIcon":""}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/content/content/"}
 ---
 
 [[Obsidian Vault/home/content/tutorial\|tutorial]]
