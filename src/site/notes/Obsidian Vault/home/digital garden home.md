@@ -4,5 +4,9 @@
 
 [[Obsidian Vault/content/content\|content]]
 
+[[project\|project]]
+
+
+
 
 

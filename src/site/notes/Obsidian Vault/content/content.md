@@ -4,6 +4,6 @@
 
 [[Obsidian Vault/content/tutorial\|tutorial]]
 
-[[Obsidian Vault/content/archive\|archive]]
+[[Obsidian Vault/content/archive/archive\|archive]]
 
 
