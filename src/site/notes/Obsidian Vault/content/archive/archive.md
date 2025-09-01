@@ -9,5 +9,5 @@
 
 [[Obsidian Vault/content/archive/bestiary\|bestiary]]
 
-[[Recueil de cent estampes representant differentes nations du Levant\|Recueil de cent estampes representant differentes nations du Levant]]
+[[Obsidian Vault/content/archive/Recueil de cent estampes representant differentes nations du Levant\|Recueil de cent estampes representant differentes nations du Levant]]
 
