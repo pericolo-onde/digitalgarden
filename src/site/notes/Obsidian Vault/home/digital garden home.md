@@ -8,6 +8,9 @@
 
 [[Obsidian Vault/home/to consume/to consume\|to consume]]
 
+[[consumed\|consumed]]
+
+
 
 
 
