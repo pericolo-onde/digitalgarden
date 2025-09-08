@@ -3,3 +3,5 @@
 ---
 
 ![[Cenni su Champagne 17_11_20.pdf]]
+
+grazie zio gianni :) 
