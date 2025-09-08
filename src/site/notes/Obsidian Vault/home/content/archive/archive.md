@@ -11,4 +11,4 @@
 
 [[Obsidian Vault/home/content/archive/Recueil de cent estampes representant differentes nations du Levant\|Recueil de cent estampes representant differentes nations du Levant]]
 
-[[Cenni su Champagne\|Cenni su Champagne]] 
+[[Obsidian Vault/images/Cenni su Champagne\|Cenni su Champagne]] 
