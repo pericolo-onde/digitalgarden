@@ -7,3 +7,4 @@
 # Miles Davis - Guinnevere
 https://youtu.be/nnFHEjXdaSE?si=1We3mtuVfNlkok4V
 
+![](https://youtu.be/94oOi7rS1XI?si=1-tu5ng_jdzLGiY6)![](https://youtu.be/OSGN7g0vqSI?si=-Rrt5mmDQpjgdLQA)
