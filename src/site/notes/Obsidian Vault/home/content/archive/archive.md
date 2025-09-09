@@ -14,3 +14,5 @@
 [[Obsidian Vault/images/Cenni su Champagne\|Cenni su Champagne]] 
 
 [[Obsidian Vault/home/content/archive/Santi\|Santi]]
+
+[[popx\|popx]]
