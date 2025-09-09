@@ -6,9 +6,8 @@
 
 [[Obsidian Vault/home/projects/project\|project]]
 
-[[Obsidian Vault/home/to consume/to consume\|to consume]]
 
-[[consumed\|consumed]]
+
 
 
 
