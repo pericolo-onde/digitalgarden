@@ -30,3 +30,18 @@ https://youtu.be/yR3oG9aGTcQ?si=kHY1qgzo2PmpLWDX
 https://www.youtube.com/@softmaxplus/videos
 ![softmaxplus.png|640x361](/img/user/softmaxplus.png)
 
+# AmoreModelloP
+https://www.youtube.com/@cerebrologo/videos
+![channels4_banner-1.jpg](/img/user/channels4_banner-1.jpg)
+
+# Innovative Research Solutions
+https://www.youtube.com/@IRS/videos
+![Innovative Research Solutions.jpg](/img/user/Innovative%20Research%20Solutions.jpg)
+
+# kaine reviews
+https://www.youtube.com/watch?v=dmDg4Q0QokU
+![kaine.jpg](/img/user/kaine.jpg)
+
+# burialgoods
+https://www.youtube.com/@burialgoods
+![burial.jpg](/img/user/burial.jpg)
