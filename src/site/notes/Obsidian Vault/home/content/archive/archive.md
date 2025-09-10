@@ -15,4 +15,4 @@
 
 [[Obsidian Vault/home/content/archive/Santi\|Santi]]
 
-[[popx\|popx]]
+[[Obsidian Vault/home/content/archive/popx\|popx]]

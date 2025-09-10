@@ -11,8 +11,8 @@
 
 [[Obsidian Vault/home/content/background music\|background music]]
 
-[[interviste\|interviste]]
+[[Obsidian Vault/home/content/interviste\|interviste]]
 
-[[memer\|memer]]
+[[Obsidian Vault/home/content/memer\|memer]]
 
-[[you know what\|you know what]]
+[[Obsidian Vault/home/content/you know what\|you know what]]
