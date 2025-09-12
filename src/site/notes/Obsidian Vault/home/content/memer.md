@@ -12,7 +12,7 @@ https://youtu.be/derc1eRZX1I?si=S9yl3jWxPcZE7Nyz
 
 # Hydraulic Beanbag
 https://www.youtube.com/@HydraulicBeanbag
-![image-1.png](/img/user/Obsidian%20Vault/images/image-1.png)
+![image-1.png](/img/user/image-1.png)
 
 # Nobey One
 https://www.youtube.com/@nobeyone/videos
@@ -20,7 +20,7 @@ https://www.youtube.com/@nobeyone/videos
 
 # 蔡曉檞
 https://www.youtube.com/@%E8%94%A1%E6%9B%89%E6%AA%9E
-![image-2.png](/img/user/Obsidian%20Vault/images/image-2.png)
+![image-2.png](/img/user/image-2.png)
 
 # TheOddMan
 https://youtu.be/yR3oG9aGTcQ?si=kHY1qgzo2PmpLWDX
@@ -45,3 +45,6 @@ https://www.youtube.com/watch?v=dmDg4Q0QokU
 # burialgoods
 https://www.youtube.com/@burialgoods
 ![burial.jpg](/img/user/Obsidian%20Vault/images/burial.jpg)
+
+
+
