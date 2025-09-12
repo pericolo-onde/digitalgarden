@@ -12,5 +12,5 @@
 
 [[Obsidian Vault/home/content/interviste\|interviste]]
 
-[[arstist\|arstist]]
+[[Obsidian Vault/home/content/artist/arstist\|arstist]]
 

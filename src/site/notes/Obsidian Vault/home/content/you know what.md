@@ -12,12 +12,12 @@ https://www.youtube.com/@amandag8258
 
 ## latexluke
 ](https://www.instagram.com/latexluke/#)
-![image-9.png](/img/user/image-9.png)
+![image-9.png](/img/user/Obsidian%20Vault/images/image-9.png)
 
 ## toco.ev
 ](https://www.instagram.com/toco.ev/#)
-![image-14.png](/img/user/image-14.png)
+![image-14.png](/img/user/Obsidian%20Vault/images/image-14.png)
 ## furrjoi001
 ](https://www.instagram.com/furrjoi001/#)
-![image-25.png](/img/user/image-25.png)
+![image-25.png](/img/user/Obsidian%20Vault/images/image-25.png)
 
