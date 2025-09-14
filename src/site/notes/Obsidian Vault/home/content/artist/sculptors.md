@@ -57,3 +57,14 @@
 ](https://www.instagram.com/nyu_uyn_nyu/#)
 ![Immagine 2025-09-14 165400.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165400.png)
 
+## giovanna_muciaccia
+](https://www.instagram.com/giovanna_muciaccia?igsh=c2kzeG4ycXA2d3J6#)
+![Immagine 2025-09-14 171408.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171408.png)
+
+## jacopo.belloni
+](https://www.instagram.com/jacopo.belloni/#)
+![Immagine 2025-09-14 172625.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172625.png)
+
+## Francesco Cavaliere
+](https://www.instagram.com/cavaliere.circles7/#)
+![Immagine 2025-09-14 172703.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172703.png)

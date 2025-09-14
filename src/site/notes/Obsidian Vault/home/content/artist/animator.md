@@ -37,3 +37,11 @@
 ## ozbren.xyz
 ](https://www.instagram.com/ozbren.xyz/#)
 ![Immagine 2025-09-14 165247.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165247.png)
+
+## elliottruman
+](https://www.instagram.com/elliottruman?igsh=bzF2YjcyZ3BwOXFn#)
+![Immagine 2025-09-14 171111.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171111.png)
+
+## oripeerdream
+](https://www.instagram.com/oripeerdream?igsh=dDIxd2hmdGxtNjlr#)
+![Immagine 2025-09-14 171250.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171250.png)

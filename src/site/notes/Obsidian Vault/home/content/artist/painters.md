@@ -25,3 +25,16 @@
 ## canemorto_fan_club
 ](https://www.instagram.com/canemorto_fan_club/#)
 ![Immagine 2025-09-14 165014.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165014.png)
+
+## heloisachalomart
+](https://www.instagram.com/heloisachalomart/#)
+![Immagine 2025-09-14 171918.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171918.png)
+
+## youkafyou
+](https://www.instagram.com/youkafyou/#)
+![Immagine 2025-09-14 172441.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172441.png)
+
+## giovannicopelli
+](https://www.instagram.com/giovannicopelli/#)
+![Immagine 2025-09-14 173405.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173405.png)
+

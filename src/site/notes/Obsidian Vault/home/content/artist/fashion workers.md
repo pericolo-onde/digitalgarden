@@ -26,3 +26,24 @@
 ## kidslovegaite
 ](https://www.instagram.com/kidslovegaite/#)
 ![Immagine 2025-09-14 165514.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165514.png)
+
+## theolalis
+](https://www.instagram.com/theolalis/#)
+![Immagine 2025-09-14 172116.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172116.png)
+
+## claudiapotycki
+](https://www.instagram.com/claudiapotycki/#)
+![Immagine 2025-09-14 172314.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172314.png)
+
+## nettynauta
+](https://www.instagram.com/nettynauta/#)
+![Immagine 2025-09-14 172348.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172348.png)
+
+## migueladroverofficial
+](https://www.instagram.com/migueladroverofficial/#)
+![Immagine 2025-09-14 172543.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172543.png)
+
+## John Alexander Skeltonhn
+](https://www.instagram.com/skeltonjohn/#)
+![Immagine 2025-09-14 173456.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173456.png)
+

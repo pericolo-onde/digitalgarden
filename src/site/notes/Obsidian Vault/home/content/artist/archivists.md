@@ -17,3 +17,16 @@
 ](https://www.instagram.com/p/DNRlRU1MW9x/#)
 ![image-6 1.png](/img/user/Obsidian%20Vault/images/image-6%201.png)
 
+## steklosvetik
+](https://www.instagram.com/steklosvetik/#)
+![Immagine 2025-09-14 172859.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172859.png)
+
+## ben_ditto
+](https://www.instagram.com/ben_ditto/#)
+https://www.ditto-nation.com/
+![Immagine 2025-09-14 173008.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173008.png)
+
+## wtfxiu
+](https://www.instagram.com/wtfxiu/#)
+![Immagine 2025-09-14 173242.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173242.png)
+
