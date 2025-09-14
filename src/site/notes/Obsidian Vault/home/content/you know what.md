@@ -10,14 +10,10 @@ https://www.youtube.com/@Flocflocus/videos
 https://www.youtube.com/@amandag8258
 ![amanda.jpg](/img/user/Obsidian%20Vault/images/amanda.jpg)
 
-## latexluke
-](https://www.instagram.com/latexluke/#)
-![image-9 1.png](/img/user/Obsidian%20Vault/images/image-9%201.png)
-
 ## toco.ev
-](https://www.instagram.com/toco.ev/#)
+(https://www.instagram.com/toco.ev/#)
 ![image-14.png](/img/user/Obsidian%20Vault/images/image-14.png)
 ## furrjoi001
-](https://www.instagram.com/furrjoi001/#)
+(https://www.instagram.com/furrjoi001/#)
 ![image-25.png](/img/user/Obsidian%20Vault/images/image-25.png)
 
