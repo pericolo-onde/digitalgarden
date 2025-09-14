@@ -2,9 +2,6 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/artist/memer/"}
 ---
 
-# joshua citarella
-https://legacy.donotresearch.net/posts/how-to-plant-a-meme
-![[e3f02e2156c40f810dcf734212e55595043dabe6-549x274.avif]]
 
 # justan oval
 https://youtu.be/derc1eRZX1I?si=S9yl3jWxPcZE7Nyz
