@@ -45,3 +45,15 @@
 (https://www.instagram.com/tobias_bradford/#)
 ![image-2 3.png](/img/user/Obsidian%20Vault/images/image-2%203.png)
 
+## fmonthoux
+](https://www.instagram.com/fmonthoux/#)
+![Immagine 2025-09-14 164520.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164520.png)
+
+## istota_istoti
+](https://www.instagram.com/istota_istoti/#)
+![Immagine 2025-09-14 165143.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165143.png)
+
+## nyu_uyn_nyu
+](https://www.instagram.com/nyu_uyn_nyu/#)
+![Immagine 2025-09-14 165400.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165400.png)
+

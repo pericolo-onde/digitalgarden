@@ -17,3 +17,6 @@ https://www.youtube.com/@amandag8258
 (https://www.instagram.com/furrjoi001/#)
 ![image-25.png](/img/user/Obsidian%20Vault/images/image-25.png)
 
+## taithinnn
+](https://www.instagram.com/taithinnn/#)
+![Immagine 2025-09-14 164424.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164424.png)

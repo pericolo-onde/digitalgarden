@@ -30,3 +30,10 @@
 (https://www.instagram.com/katerine_dm/#)
 ![image-10 2.png](/img/user/Obsidian%20Vault/images/image-10%202.png)
 
+## doorofdestinies
+(https://www.instagram.com/doorofdestinies/#)
+![Immagine 2025-09-14 164612.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164612.png)
+
+## ozbren.xyz
+](https://www.instagram.com/ozbren.xyz/#)
+![Immagine 2025-09-14 165247.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165247.png)

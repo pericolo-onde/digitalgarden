@@ -57,3 +57,7 @@
 ## shadespaths
 (https://www.instagram.com/shadespaths/#)
 ![image-9 2 1.png](/img/user/Obsidian%20Vault/images/image-9%202%201.png)
+## bookie_art
+(https://www.instagram.com/bookie_art/#)
+![bookie_art.png](/img/user/Obsidian%20Vault/images/bookie_art.png)
+

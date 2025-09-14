@@ -28,4 +28,4 @@
 
 [[Obsidian Vault/home/content/artist/fashion workers\|fashion workers]]
 
-[[Obsidian Vault/home/content/artist/illustrator\|illustrator]]
+[[Obsidian Vault/home/content/artist/forniture\|forniture]]

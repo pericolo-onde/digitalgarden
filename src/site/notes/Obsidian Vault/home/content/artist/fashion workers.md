@@ -19,4 +19,10 @@
 ## namevarg.ltd
 ](https://www.instagram.com/namevarg.ltd/#)
 ![image-7 2.png](/img/user/Obsidian%20Vault/images/image-7%202.png)
+## solo_handmade_shoes
+](https://www.instagram.com/solo_handmade_shoes/#)
+![Immagine 2025-09-14 163756.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20163756.png)
 
+## kidslovegaite
+](https://www.instagram.com/kidslovegaite/#)
+![Immagine 2025-09-14 165514.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165514.png)
