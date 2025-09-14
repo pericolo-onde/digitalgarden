@@ -8,7 +8,5 @@
 
 [[Obsidian Vault/home/content/interviste\|interviste]]
 
-[[Obsidian Vault/home/content/artisti/artisti\|artisti]]
-
 [[Obsidian Vault/home/clubs\|clubs]]
 
