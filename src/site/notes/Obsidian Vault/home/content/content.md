@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/content/"}
 ---
 
-[[Obsidian Vault/home/content/archive/library\|library]]
+[[Obsidian Vault/home/content/library/library\|library]]
 
 [[Obsidian Vault/home/content/to consume/to consume\|to consume]]
 

@@ -56,4 +56,4 @@
 
 ## shadespaths
 (https://www.instagram.com/shadespaths/#)
-![image-9 2.png](/img/user/image-9%202.png)
+![image-9 2 1.png](/img/user/Obsidian%20Vault/images/image-9%202%201.png)

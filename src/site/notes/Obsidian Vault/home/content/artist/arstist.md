@@ -2,11 +2,9 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/artist/arstist/"}
 ---
 
-[[Obsidian Vault/home/content/memer\|memer]]
+[[Obsidian Vault/home/content/artist/memer\|memer]]
 
-[[Obsidian Vault/home/content/you know what\|you know what]]
-
-[[coders\|coders]]
+[[Obsidian Vault/home/content/artist/you know what\|you know what]]
 
 [[Obsidian Vault/home/content/artist/writers\|writers]]
 
@@ -15,8 +13,6 @@
 [[Obsidian Vault/home/content/artist/archivists\|archivists]]
 
 [[Obsidian Vault/home/content/artist/philosophers\|philosophers]]
-
-[[inventors and scientists\|inventors and scientists]]
 
 [[Obsidian Vault/home/content/artist/animator\|animator]]
 

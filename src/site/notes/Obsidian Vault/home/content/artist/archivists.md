@@ -9,7 +9,7 @@
 
 # ball_band
 (https://www.instagram.com/ball_band/#)
-![image-4.png](/img/user/image-4.png)
+![image-4 3.png](/img/user/Obsidian%20Vault/images/image-4%203.png)
 ## vintage_dali_ties
 ](https://www.instagram.com/vintage_dali_ties/#)
 ![image-22.png](/img/user/Obsidian%20Vault/images/image-22.png)
