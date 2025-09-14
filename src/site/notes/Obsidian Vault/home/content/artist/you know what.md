@@ -6,6 +6,10 @@
 https://www.youtube.com/@Flocflocus/videos
 ![Flocflocus.jpg|640x361](/img/user/Obsidian%20Vault/images/Flocflocus.jpg)
 
+## alessiowedgie
+](https://www.instagram.com/alessiowedgie#)
+![Immagine 2025-09-14 185452.png](/img/user/Immagine%202025-09-14%20185452.png)
+
 # Amanda's Foot court
 https://www.youtube.com/@amandag8258
 ![amanda.jpg|637x359](/img/user/Obsidian%20Vault/images/amanda.jpg)
