@@ -68,3 +68,12 @@
 ## Francesco Cavaliere
 ](https://www.instagram.com/cavaliere.circles7/#)
 ![Immagine 2025-09-14 172703.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172703.png)
+
+## maskulllasserre
+](https://www.instagram.com/maskulllasserre/#)
+![Immagine 2025-09-14 181426.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181426.png)
+
+## Tobyn Jacobs
+](https://www.instagram.com/tobynjacobs/#)
+![Immagine 2025-09-14 182417.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182417.png)
+

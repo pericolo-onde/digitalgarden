@@ -7,6 +7,22 @@
 https://www.instagram.com/frightenedsheep25937582/#
 ![Immagine 2025-09-14 173735.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173735.png)
 
+## trashbinsta
+](https://www.instagram.com/trashbinsta/#)
+![Immagine 2025-09-14 182941.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182941.png)
+
+## ysl_bulgaria
+](https://www.instagram.com/ysl_bulgaria/#)
+![Immagine 2025-09-14 180614.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180614.png)
+
+## joey.scary
+](https://www.instagram.com/joey.scary/#)
+![Immagine 2025-09-14 180731.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180731.png)
+
+## infoboydotcom
+](https://www.instagram.com/infoboydotcom/followers/mutualOnly#)
+![Immagine 2025-09-14 182515.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182515.png)
+
 # justan oval
 https://youtu.be/derc1eRZX1I?si=S9yl3jWxPcZE7Nyz
 ![image 1.png](/img/user/Obsidian%20Vault/images/image%201.png)

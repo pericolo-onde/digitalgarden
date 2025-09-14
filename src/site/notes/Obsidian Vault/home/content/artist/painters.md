@@ -6,6 +6,11 @@
 # been_shill
 ](https://www.instagram.com/been_shill/#)
 ![image-27.png](/img/user/Obsidian%20Vault/images/image-27.png)
+
+## 00.1bun
+](https://www.instagram.com/00.1bun/#)
+![Immagine 2025-09-14 181122.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181122.png)
+
 ## snowfoni
 ](https://www.instagram.com/snowfoni/#)
 ![image-34.png](/img/user/Obsidian%20Vault/images/image-34.png)
@@ -37,4 +42,8 @@
 ## giovannicopelli
 ](https://www.instagram.com/giovannicopelli/#)
 ![Immagine 2025-09-14 173405.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173405.png)
+
+## derekrattoo
+](https://www.instagram.com/derekrattoo/#)
+![Immagine 2025-09-14 182306.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182306.png)
 

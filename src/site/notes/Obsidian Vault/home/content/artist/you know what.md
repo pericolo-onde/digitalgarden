@@ -8,7 +8,7 @@ https://www.youtube.com/@Flocflocus/videos
 
 # Amanda's Foot court
 https://www.youtube.com/@amandag8258
-![amanda.jpg](/img/user/Obsidian%20Vault/images/amanda.jpg)
+![amanda.jpg|637x359](/img/user/Obsidian%20Vault/images/amanda.jpg)
 
 ## toco.ev
 (https://www.instagram.com/toco.ev/#)
@@ -39,4 +39,8 @@ https://www.youtube.com/@amandag8258
 ## Aylin Kandemir
 (https://www.instagram.com/ayleen23/#)
 ![Immagine 2025-09-14 173945.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173945.png)
+
+## gungemad
+](https://www.instagram.com/gungemad/#)
+![Immagine 2025-09-14 180827.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180827.png)
 

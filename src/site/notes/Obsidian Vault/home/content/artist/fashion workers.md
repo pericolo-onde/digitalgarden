@@ -3,6 +3,18 @@
 ---
 
 
+## keikagami_
+](https://www.instagram.com/keikagami_/#)
+![Immagine 2025-09-14 181508.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181508.png)
+
+## p___andrade
+](https://www.instagram.com/p_____andrade/#)
+![Immagine 2025-09-14 182717.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182717.png)
+
+## Maurizio Giacomo Altieri
+](https://www.instagram.com/mauriziogiacomoaltieri/#)
+![Immagine 2025-09-14 182824.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182824.png)
+
 ## trashyclothing
 ](https://www.instagram.com/trashyclothing/#)
 ![image-36.png](/img/user/Obsidian%20Vault/images/image-36.png)
@@ -46,4 +58,8 @@
 ## John Alexander Skeltonhn
 ](https://www.instagram.com/skeltonjohn/#)
 ![Immagine 2025-09-14 173456.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173456.png)
+
+## achillepinto
+](https://www.instagram.com/achillepinto/#)
+![Immagine 2025-09-14 180917.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180917.png)
 

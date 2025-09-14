@@ -3,6 +3,18 @@
 ---
 
 
+## David Firth
+https://www.instagram.com/davidfirth66/#
+![Immagine 2025-09-14 181739.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181739.png)
+
+## courtesy_vulture
+](https://www.instagram.com/courtesy_vulture/#)
+![Immagine 2025-09-14 181828.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181828.png)
+
+## Cyriak Harris
+](https://www.instagram.com/cyriak_h/#)
+![Immagine 2025-09-14 181232.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181232.png)
+
 ## alpineshowtime
 (https://www.instagram.com/alpineshowtime/#)
 ![image-20.png](/img/user/Obsidian%20Vault/images/image-20.png)
