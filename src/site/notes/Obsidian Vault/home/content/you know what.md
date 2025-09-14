@@ -12,7 +12,7 @@ https://www.youtube.com/@amandag8258
 
 ## latexluke
 ](https://www.instagram.com/latexluke/#)
-![image-9.png](/img/user/Obsidian%20Vault/images/image-9.png)
+![image-9 1.png](/img/user/Obsidian%20Vault/images/image-9%201.png)
 
 ## toco.ev
 ](https://www.instagram.com/toco.ev/#)

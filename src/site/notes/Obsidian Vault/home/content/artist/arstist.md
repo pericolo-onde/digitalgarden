@@ -31,3 +31,5 @@
 [[Obsidian Vault/home/content/artist/tatuator\|tatuator]]
 
 [[Obsidian Vault/home/content/artist/fashion designer\|fashion designer]]
+
+[[Obsidian Vault/home/content/artist/illustrator\|illustrator]]

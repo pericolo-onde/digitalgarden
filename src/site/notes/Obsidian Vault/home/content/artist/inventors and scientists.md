@@ -5,5 +5,5 @@
 
 ## naterthought
 ](https://www.instagram.com/naterthought/#)
-![image-8.png](/img/user/Obsidian%20Vault/images/image-8.png)
+![image-8 1.png](/img/user/Obsidian%20Vault/images/image-8%201.png)
 

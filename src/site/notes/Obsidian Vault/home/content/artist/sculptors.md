@@ -23,4 +23,21 @@
 ## anthr0morph
 ](https://www.instagram.com/anthr0morph/#)
 ![image-38.png](/img/user/Obsidian%20Vault/images/image-38.png)
+## codyedgewater
+](https://www.instagram.com/codyedgewater/#)
+[Garth Greenan Gallery](https://www.garthgreenan.com/artists/melissa-cody/selected-works-old/undefined?view=thumbnails#2)
+![image-2 2.png](/img/user/Obsidian%20Vault/images/image-2%202.png)
+## wretched_flowers_
+](https://www.instagram.com/wretched_flowers_/#)
+![image-3 1.png](/img/user/Obsidian%20Vault/images/image-3%201.png)
+
+## victor_homenko
+](https://www.instagram.com/victor_homenko/#)
+![image-4 1.png](/img/user/Obsidian%20Vault/images/image-4%201.png)
+## shampoooty
+](https://www.instagram.com/shampoooty/#)
+![image-5 1.png](/img/user/Obsidian%20Vault/images/image-5%201.png)
+## pietrospirito
+](https://www.instagram.com/pietrospirito/#)
+![image-7 1.png](/img/user/Obsidian%20Vault/images/image-7%201.png)
 

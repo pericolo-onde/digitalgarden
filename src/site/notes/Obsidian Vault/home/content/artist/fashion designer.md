@@ -12,3 +12,7 @@
 ## gretamoschata
 ](https://www.instagram.com/gretamoschata/#)
 ![image-41.png](/img/user/Obsidian%20Vault/images/image-41.png)
+## bodyamplificationdevices
+](https://www.instagram.com/bodyamplificationdevices/#)
+![image-8 1.png](/img/user/Obsidian%20Vault/images/image-8%201.png)
+
