@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/content/you know what\|you know what]]
 
-[[Obsidian Vault/home/content/artist/brainrot\|brainrot]]
+[[Obsidian Vault/home/content/artist/coders\|coders]]
 
 [[Obsidian Vault/home/content/artist/writers\|writers]]
 
@@ -30,6 +30,6 @@
 
 [[Obsidian Vault/home/content/artist/tatuator\|tatuator]]
 
-[[Obsidian Vault/home/content/artist/fashion designer\|fashion designer]]
+[[Obsidian Vault/home/content/artist/fashion workers\|fashion workers]]
 
 [[Obsidian Vault/home/content/artist/illustrator\|illustrator]]

@@ -10,3 +10,7 @@
 ](https://www.instagram.com/omeroaraldi/#)
 ![image-10 1.png](/img/user/Obsidian%20Vault/images/image-10%201.png)
 
+## _themaiy_
+](https://www.instagram.com/_themaiy_/#)
+![image-8.png](/img/user/image-8.png)
+

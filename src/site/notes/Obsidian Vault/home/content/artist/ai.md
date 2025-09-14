@@ -42,3 +42,19 @@
 ](https://www.instagram.com/twopixx/#)
 ![image-37.png](/img/user/Obsidian%20Vault/images/image-37.png)
 
+## daniele.micheletti
+](https://www.instagram.com/daniele.micheletti/#)
+![image-3.png](/img/user/image-3.png)
+
+## unearthly.ai
+](https://www.instagram.com/unearthly.ai/#)
+![image-4.png](/img/user/image-4.png)
+
+## amonsilex
+](https://www.instagram.com/amonsilex/#)
+![image-5.png](/img/user/image-5.png)
+
+## shadespaths
+](https://www.instagram.com/shadespaths/#)
+![image-9.png](/img/user/image-9.png)
+
