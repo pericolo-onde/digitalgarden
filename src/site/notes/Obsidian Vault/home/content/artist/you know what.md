@@ -36,3 +36,7 @@ https://www.youtube.com/@amandag8258
 ](https://www.instagram.com/mihulicious9/#)
 ![Immagine 2025-09-14 173319.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173319.png)
 
+## Aylin Kandemir
+(https://www.instagram.com/ayleen23/#)
+![Immagine 2025-09-14 173945.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173945.png)
+
