@@ -19,6 +19,10 @@ https://www.instagram.com/frightenedsheep25937582/#
 ](https://www.instagram.com/joey.scary/#)
 ![Immagine 2025-09-14 180731.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180731.png)
 
+## sgommona
+](https://www.instagram.com/sgommona/#)
+![Immagine 2025-09-14 172014.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172014.png)
+
 ## infoboydotcom
 ](https://www.instagram.com/infoboydotcom/followers/mutualOnly#)
 ![Immagine 2025-09-14 182515.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182515.png)
@@ -50,15 +54,15 @@ https://www.youtube.com/@cerebrologo/videos
 
 # Innovative Research Solutions
 https://www.youtube.com/@IRS/videos
-![Innovative Research Solutions.jpg](/img/user/Obsidian%20Vault/images/Innovative%20Research%20Solutions.jpg)
+![Innovative Research Solutions.jpg|637x358](/img/user/Obsidian%20Vault/images/Innovative%20Research%20Solutions.jpg)
 
 # kaine reviews
 https://www.youtube.com/watch?v=dmDg4Q0QokU
-![kaine.jpg](/img/user/Obsidian%20Vault/images/kaine.jpg)
+![kaine.jpg|637x360](/img/user/Obsidian%20Vault/images/kaine.jpg)
 
 # burialgoods
 https://www.youtube.com/@burialgoods
-![burial.jpg](/img/user/Obsidian%20Vault/images/burial.jpg)
+![burial.jpg|636x358](/img/user/Obsidian%20Vault/images/burial.jpg)
 
 ## johnnydharma000
 (https://www.instagram.com/johnnydharma000/#)
@@ -72,10 +76,5 @@ https://www.youtube.com/@burialgoods
 ](https://www.instagram.com/lilyipyap?igsh=eDl3aGY5Z2E5YW9s#)
 ![Immagine 2025-09-14 171019.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171019.png)
 
-[
 
-## sgommona
-
-](https://www.instagram.com/sgommona/#)
-![Immagine 2025-09-14 172014.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172014.png)
 
