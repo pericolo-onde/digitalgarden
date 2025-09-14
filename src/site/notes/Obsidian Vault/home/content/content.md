@@ -4,13 +4,11 @@
 
 [[Obsidian Vault/home/content/library/library\|library]]
 
-[[Obsidian Vault/home/content/to consume/to consume\|to consume]]
-
-[[Obsidian Vault/home/content/mindless scroll\|mindless scroll]]
-
 [[Obsidian Vault/home/content/background music\|background music]]
 
 [[Obsidian Vault/home/content/interviste\|interviste]]
 
-[[Obsidian Vault/home/content/artist/arstist\|arstist]]
+[[Obsidian Vault/home/content/artisti/artisti\|artisti]]
+
+[[Obsidian Vault/home/clubs\|clubs]]
 
