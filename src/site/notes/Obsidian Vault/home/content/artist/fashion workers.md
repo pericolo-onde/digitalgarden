@@ -18,5 +18,5 @@
 
 ## namevarg.ltd
 ](https://www.instagram.com/namevarg.ltd/#)
-![image-7.png](/img/user/image-7.png)
+![image-7 2.png](/img/user/Obsidian%20Vault/images/image-7%202.png)
 

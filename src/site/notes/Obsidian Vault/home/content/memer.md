@@ -16,7 +16,7 @@ https://www.youtube.com/@nobeyone/videos
 
 # 蔡曉檞
 https://www.youtube.com/@%E8%94%A1%E6%9B%89%E6%AA%9E
-![image.png](/img/user/image.png)
+![image 5.png](/img/user/Obsidian%20Vault/images/image%205.png)
 
 # TheOddMan
 https://youtu.be/yR3oG9aGTcQ?si=kHY1qgzo2PmpLWDX

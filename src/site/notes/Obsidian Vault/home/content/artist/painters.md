@@ -12,5 +12,5 @@
 
 ## effective___power
 ](https://www.instagram.com/effective___power/#)
-![image-11.png](/img/user/image-11.png)
+![image-11 2.png](/img/user/Obsidian%20Vault/images/image-11%202.png)
 

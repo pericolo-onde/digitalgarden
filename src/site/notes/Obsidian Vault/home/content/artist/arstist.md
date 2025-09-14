@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/content/you know what\|you know what]]
 
-[[Obsidian Vault/home/content/artist/coders\|coders]]
+[[coders\|coders]]
 
 [[Obsidian Vault/home/content/artist/writers\|writers]]
 
@@ -16,7 +16,7 @@
 
 [[Obsidian Vault/home/content/artist/philosophers\|philosophers]]
 
-[[Obsidian Vault/home/content/artist/inventors and scientists\|inventors and scientists]]
+[[inventors and scientists\|inventors and scientists]]
 
 [[Obsidian Vault/home/content/artist/animator\|animator]]
 

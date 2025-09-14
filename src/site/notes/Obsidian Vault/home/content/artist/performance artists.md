@@ -12,5 +12,5 @@
 
 ## _themaiy_
 ](https://www.instagram.com/_themaiy_/#)
-![image-8.png](/img/user/image-8.png)
+![image-8 2.png](/img/user/Obsidian%20Vault/images/image-8%202.png)
 

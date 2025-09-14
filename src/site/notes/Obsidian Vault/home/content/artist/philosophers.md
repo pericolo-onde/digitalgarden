@@ -4,6 +4,5 @@
 
 
 ## philosophy_madman_
-
-](https://www.instagram.com/philosophy_madman_/#)
-![image-6 1.png](/img/user/Obsidian%20Vault/images/image-6%201.png)
+(https://www.instagram.com/philosophy_madman_/#)
+![image-6.png](/img/user/image-6.png)

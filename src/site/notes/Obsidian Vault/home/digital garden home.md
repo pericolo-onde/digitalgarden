@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/projects/project\|project]]
 
-[[clubs\|clubs]]
+[[Obsidian Vault/home/clubs\|clubs]]
 
 
 
