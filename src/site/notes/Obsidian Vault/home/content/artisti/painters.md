@@ -4,15 +4,23 @@
 
 
 # been_shill
-](https://www.instagram.com/been_shill/#)
+https://www.instagram.com/been_shill/#
 ![image-27.png](/img/user/Obsidian%20Vault/images/image-27.png)
 
 ## 00.1bun
-](https://www.instagram.com/00.1bun/#)
+https://www.instagram.com/00.1bun/#
 ![Immagine 2025-09-14 181122.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181122.png)
 
+## silvatooth
+https://www.instagram.com/silvatooth/#
+![Immagine 2025-09-15 195441.png](/img/user/Immagine%202025-09-15%20195441.png)
+
+## angel_lovecraft
+https://www.instagram.com/angel_lovecraft/#
+![Immagine 2025-09-15 200044.png](/img/user/Immagine%202025-09-15%20200044.png)
+
 ## snowfoni
-](https://www.instagram.com/snowfoni/#)
+https://www.instagram.com/snowfoni/#
 ![image-34.png](/img/user/Obsidian%20Vault/images/image-34.png)
 
 ## effective___power

@@ -11,6 +11,14 @@ https://www.instagram.com/davidfirth66/#
 ](https://www.instagram.com/courtesy_vulture/#)
 ![Immagine 2025-09-14 181828.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181828.png)
 
+## cutexbaby7037
+https://www.instagram.com/cutexbaby7037/#
+![Immagine 2025-09-15 194313.png](/img/user/Immagine%202025-09-15%20194313.png)
+
+## dazouo
+https://www.instagram.com/dazouo/#
+![Immagine 2025-09-15 194351.png](/img/user/Immagine%202025-09-15%20194351.png)
+
 ## Cyriak Harris
 ](https://www.instagram.com/cyriak_h/#)
 ![Immagine 2025-09-14 181232.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181232.png)

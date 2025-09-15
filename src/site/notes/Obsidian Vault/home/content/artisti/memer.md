@@ -3,6 +3,10 @@
 ---
 
 
+## bjornd.al
+https://www.instagram.com/bjornd.al/reels/#
+![Immagine 2025-09-15 195222.png](/img/user/Immagine%202025-09-15%20195222.png)
+
 ## kazzcoyote
 https://www.instagram.com/kazzcoyote/#
 ![Immagine 2025-09-15 191515.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191515.png)
