@@ -4,7 +4,7 @@
 
 
 ## philosophy_madman_
-(https://www.instagram.com/philosophy_madman_/#)
+https://www.instagram.com/philosophy_madman_/#
 ![image-6 3.png](/img/user/Obsidian%20Vault/images/image-6%203.png)
 
 # joshua citarella

@@ -27,7 +27,3 @@ https://www.instagram.com/red.degree/#
 https://www.instagram.com/wttdotm/#
 ![image 7.png](/img/user/Obsidian%20Vault/images/image%207.png)
 
-## mission.mergiela
-https://www.instagram.com/mission.mergiela/#
-![Immagine 2025-09-15 195840.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20195840.png)
-

@@ -40,29 +40,28 @@ https://www.instagram.com/thealienarms?igsh=MWd6OHF0Z3NoaDczaw%3D%3D#
 ![Immagine 2025-09-15 122518.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20122518.png)
 
 ## trashbinsta
-](https://www.instagram.com/trashbinsta/#)
+https://www.instagram.com/trashbinsta/#
 ![Immagine 2025-09-14 182941.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182941.png)
 
 ## ysl_bulgaria
-](https://www.instagram.com/ysl_bulgaria/#)
+https://www.instagram.com/ysl_bulgaria/#
 ![Immagine 2025-09-14 180614.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180614.png)
 
 ## joey.scary
-](https://www.instagram.com/joey.scary/#)
+https://www.instagram.com/joey.scary/#
 ![Immagine 2025-09-14 180731.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180731.png)
 
 ## sgommona
-](https://www.instagram.com/sgommona/#)
+https://www.instagram.com/sgommona/#
 ![Immagine 2025-09-14 172014.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172014.png)
 
 ## infoboydotcom
-](https://www.instagram.com/infoboydotcom/followers/mutualOnly#)
+https://www.instagram.com/infoboydotcom/followers/mutualOnly#
 ![Immagine 2025-09-14 182515.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182515.png)
 
 # justan oval
 https://youtu.be/derc1eRZX1I?si=S9yl3jWxPcZE7Nyz
 ![image 1.png](/img/user/Obsidian%20Vault/images/image%201.png)
-
 
 # Nobey One
 https://www.youtube.com/@nobeyone/videos
@@ -101,11 +100,11 @@ https://www.youtube.com/@burialgoods
 ![image-1 3.png](/img/user/Obsidian%20Vault/images/image-1%203.png)
 
 ## hcfwer_modeltest2_rp
-](https://www.instagram.com/hcfwer_modeltest2_rp/#)
+https://www.instagram.com/hcfwer_modeltest2_rp/#
 ![Immagine 2025-09-14 170855.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20170855.png)
 
 ## lilyipyap
-](https://www.instagram.com/lilyipyap?igsh=eDl3aGY5Z2E5YW9s#)
+https://www.instagram.com/lilyipyap?igsh=eDl3aGY5Z2E5YW9s#
 ![Immagine 2025-09-14 171019.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171019.png)
 
 ## isaxophoneu

@@ -47,7 +47,7 @@ https://www.instagram.com/johnwhalen69#
 ![Immagine 2025-09-15 190536.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20190536.png)
 
 ## toco.ev
-(https://www.instagram.com/toco.ev/#)
+https://www.instagram.com/toco.ev/#
 ![image-14.png](/img/user/Obsidian%20Vault/images/image-14.png)
 
 ## mteverestgarments
@@ -55,7 +55,7 @@ https://www.instagram.com/mteverestgarments/#
 ![Immagine 2025-09-15 223709.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20223709.png)
 
 ## furrjoi001
-(https://www.instagram.com/furrjoi001/#)
+https://www.instagram.com/furrjoi001/#
 ![image-25.png](/img/user/Obsidian%20Vault/images/image-25.png)
 
 ## joeslilsimp
@@ -63,29 +63,29 @@ https://www.instagram.com/joeslilsimp/#
 ![Immagine 2025-09-15 191709.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191709.png)
 
 ## taithinnn
-](https://www.instagram.com/taithinnn/#)
+https://www.instagram.com/taithinnn/#
 ![Immagine 2025-09-14 164424.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164424.png)
 
 ## the.bellyking
-](https://www.instagram.com/the.bellyking?igsh=NzM5dzJqaWgyb3Fj#)
+https://www.instagram.com/the.bellyking?igsh=NzM5dzJqaWgyb3Fj#
 ![Immagine 2025-09-14 171157.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171157.png)
 ## cariboueno
-](https://www.instagram.com/cariboueno/#)
+https://www.instagram.com/cariboueno/#
 ![Immagine 2025-09-14 172801.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172801.png)
 
 ## princesskaykay93
-](https://www.instagram.com/princesskaykay93/#)
+https://www.instagram.com/princesskaykay93/#
 ![Immagine 2025-09-14 173056.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173056.png)
 
 ## mihulicious9
-](https://www.instagram.com/mihulicious9/#)
+https://www.instagram.com/mihulicious9/#
 ![Immagine 2025-09-14 173319.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173319.png)
 
 ## Aylin Kandemir
-(https://www.instagram.com/ayleen23/#)
+https://www.instagram.com/ayleen23/#
 ![Immagine 2025-09-14 173945.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173945.png)
 
 ## gungemad
-](https://www.instagram.com/gungemad/#)
+https://www.instagram.com/gungemad/#
 ![Immagine 2025-09-14 180827.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180827.png)
 

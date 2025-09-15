@@ -18,5 +18,10 @@
 
 
 
+
+
+
+
+
 [[Obsidian Vault/home/content/content\|content]] [[Obsidian Vault/home/projects/project\|project]] [[Obsidian Vault/home/artisti/artisti\|artisti]]
 
