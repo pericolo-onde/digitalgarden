@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/projects/project\|project]]
 
-[[Obsidian Vault/home/content/artisti/artisti\|artisti]]
+[[Obsidian Vault/home/artisti/artisti\|artisti]]
 
 
 

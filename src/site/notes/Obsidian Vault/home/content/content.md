@@ -8,5 +8,5 @@
 
 [[Obsidian Vault/home/content/interviste\|interviste]]
 
-[[Obsidian Vault/home/clubs\|clubs]]
+[[Obsidian Vault/home/content/clubs\|clubs]]
 
