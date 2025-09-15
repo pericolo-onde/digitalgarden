@@ -14,6 +14,4 @@
 
 
 
-
-
-
+[![pngegg.png](/img/user/pngegg.png)](https://pericoloonde.xyz/obsidian-vault/home/artisti/artisti/)
