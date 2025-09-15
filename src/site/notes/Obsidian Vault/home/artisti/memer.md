@@ -3,7 +3,7 @@
 ---
 
 
-## bjornd.al
+## Peter Bjorndal
 https://www.instagram.com/bjornd.al/reels/#
 ![Immagine 2025-09-15 195222.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20195222.png)
 
