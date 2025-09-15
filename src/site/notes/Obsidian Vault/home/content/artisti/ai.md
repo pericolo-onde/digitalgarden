@@ -15,15 +15,34 @@
 https://www.instagram.com/eggstonite/#
 ![Immagine 2025-09-15 191611.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191611.png)
 
+## mowgly_lee
+https://www.instagram.com/mowgly_lee/#
+![Immagine 2025-09-15 201756.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20201756.png)
+
 ## 0nastiia
 (https://www.instagram.com/0nastiia/#)
 ![image-1 1.png](/img/user/Obsidian%20Vault/images/image-1%201.png)
+
+## ronjafman
+https://www.instagram.com/ronjafman/#
+![Immagine 2025-09-15 205129.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20205129.png)
+
 ## imparsthetic
 (https://www.instagram.com/imparsthetic/#)
 ![image-3.png](/img/user/Obsidian%20Vault/images/image-3.png)
+
 ## arvidabystrom
 (https://www.instagram.com/arvidabystrom/#)
 ![image-5.png](/img/user/Obsidian%20Vault/images/image-5.png)
+
+## cd_masterizzato
+https://www.instagram.com/cd_masterizzato/#
+![Immagine 2025-09-15 221657.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20221657.png)
+
+## cd_generativo
+https://www.instagram.com/cd_generativo/#
+![Immagine 2025-09-15 221750.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20221750.png)
+
 ## cd_inventore
 (https://www.instagram.com/cd_inventore/#)
 ![image-7.png](/img/user/Obsidian%20Vault/images/image-7.png)

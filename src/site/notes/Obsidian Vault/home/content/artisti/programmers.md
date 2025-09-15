@@ -21,13 +21,13 @@ https://www.instagram.com/nouses_kou/#
 
 ## red.degree
 https://www.instagram.com/red.degree/#
-![Immagine 2025-09-15 194516.png](/img/user/Immagine%202025-09-15%20194516.png)
+![Immagine 2025-09-15 194516.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20194516.png)
 
 ## wttdotm
 https://www.instagram.com/wttdotm/#
-![image.png](/img/user/image.png)
+![image 7.png](/img/user/Obsidian%20Vault/images/image%207.png)
 
 ## mission.mergiela
 https://www.instagram.com/mission.mergiela/#
-![Immagine 2025-09-15 195840.png](/img/user/Immagine%202025-09-15%20195840.png)
+![Immagine 2025-09-15 195840.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20195840.png)
 

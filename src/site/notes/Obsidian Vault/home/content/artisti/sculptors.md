@@ -11,35 +11,58 @@
 (https://www.instagram.com/donato_piccolo/#)
 ![image-16.png](/img/user/Obsidian%20Vault/images/image-16.png)
 
+## princemonkey
+https://www.instagram.com/princemonkey/#
+![Immagine 2025-09-15 201254.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20201254.png)
+
+## stchadsprojects
+https://www.instagram.com/stchadsprojects/#
+![Immagine 2025-09-15 223512.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20223512.png)
+
 ## wojtyl.a
 (https://www.instagram.com/wojtyl.a/#)
 ![image-19.png](/img/user/Obsidian%20Vault/images/image-19.png)
+
 ## tundra_time_
 (https://www.instagram.com/tundra_time_/#)
 ![image-29.png](/img/user/Obsidian%20Vault/images/image-29.png)
+
 ## bigaxe_tornitura
 (https://www.instagram.com/bigaxe_tornitura/#)
 ![image-32.png](/img/user/Obsidian%20Vault/images/image-32.png)
+
 ## anthr0morph
 (https://www.instagram.com/anthr0morph/#)
 ![image-38.png](/img/user/Obsidian%20Vault/images/image-38.png)
+
 ## codyedgewater
 (https://www.instagram.com/codyedgewater/#)
 [Garth Greenan Gallery](https://www.garthgreenan.com/artists/melissa-cody/selected-works-old/undefined?view=thumbnails#2)
 ![image-2 2.png](/img/user/Obsidian%20Vault/images/image-2%202.png)
+
 ## wretched_flowers_
-(https://www.instagram.com/wretched_flowers_/#)
+https://www.instagram.com/wretched_flowers_/#
 ![image-3 1.png](/img/user/Obsidian%20Vault/images/image-3%201.png)
 
+## exteriormonologue
+https://www.instagram.com/exteriormonologue/#
+![Immagine 2025-09-15 204527.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204527.png)
+
 ## victor_homenko
-(https://www.instagram.com/victor_homenko/#)
+https://www.instagram.com/victor_homenko/#
 ![image-4 1.png](/img/user/Obsidian%20Vault/images/image-4%201.png)
+
 ## shampoooty
 (https://www.instagram.com/shampoooty/#)
 ![image-5 1.png](/img/user/Obsidian%20Vault/images/image-5%201.png)
+
 ## pietrospirito
 (https://www.instagram.com/pietrospirito/#)
 ![image-7 1.png](/img/user/Obsidian%20Vault/images/image-7%201.png)
+
+## johnsleepymoran
+https://www.instagram.com/johnsleepymoran/#
+![Immagine 2025-09-15 204411.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204411.png)
 
 ## tobias_bradford
 (https://www.instagram.com/tobias_bradford/#)
@@ -56,6 +79,10 @@
 ## nyu_uyn_nyu
 ](https://www.instagram.com/nyu_uyn_nyu/#)
 ![Immagine 2025-09-14 165400.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165400.png)
+
+## exitsimulation
+https://www.instagram.com/exitsimulation/#
+![Immagine 2025-09-15 204137.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204137.png)
 
 ## giovanna_muciaccia
 ](https://www.instagram.com/giovanna_muciaccia?igsh=c2kzeG4ycXA2d3J6#)
@@ -77,6 +104,10 @@
 ](https://www.instagram.com/tobynjacobs/#)
 ![Immagine 2025-09-14 182417.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182417.png)
 
+## andrea_chiampo
+https://www.instagram.com/andrea_chiampo/#
+![Immagine 2025-09-15 205713.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20205713.png)
+
 ## ram2isflat
 https://www.instagram.com/ram2isflat/#
 ![Immagine 2025-09-15 191334.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191334.png)
@@ -84,4 +115,8 @@ https://www.instagram.com/ram2isflat/#
 ## federico_solmi
 https://www.instagram.com/federico_solmi/#
 ![Immagine 2025-09-15 192341.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192341.png)
+
+## aaronvartiainen0
+https://www.instagram.com/aaronvartiainen0/#
+![Immagine 2025-09-15 205342.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20205342.png)
 

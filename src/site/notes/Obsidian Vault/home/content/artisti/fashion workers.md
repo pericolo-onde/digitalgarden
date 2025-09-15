@@ -11,9 +11,17 @@
 ](https://www.instagram.com/p_____andrade/#)
 ![Immagine 2025-09-14 182717.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182717.png)
 
+## infimalega
+https://www.instagram.com/infimalega#
+![Immagine 2025-09-15 202634.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20202634.png)
+
 ## ujeel1
 https://www.instagram.com/ujeel1/#
-![Immagine 2025-09-15 195621.png](/img/user/Immagine%202025-09-15%20195621.png)
+![Immagine 2025-09-15 195621.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20195621.png)
+
+## ogawa_tomoko_desu
+https://www.instagram.com/ogawa_tomoko_desu/#
+![Immagine 2025-09-15 203105.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20203105.png)
 
 ## Maurizio Giacomo Altieri
 ](https://www.instagram.com/mauriziogiacomoaltieri/#)

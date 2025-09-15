@@ -7,17 +7,29 @@
 https://www.instagram.com/davidfirth66/#
 ![Immagine 2025-09-14 181739.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181739.png)
 
+## nikitadiakur
+https://www.instagram.com/nikitadiakur/#
+![Immagine 2025-09-15 204245.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204245.png)
+
+## wearedeadanimals
+https://www.instagram.com/wearedeadanimals/#
+![Immagine 2025-09-15 224342.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20224342.png)
+
 ## courtesy_vulture
-](https://www.instagram.com/courtesy_vulture/#)
+https://www.instagram.com/courtesy_vulture/#
 ![Immagine 2025-09-14 181828.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181828.png)
 
 ## cutexbaby7037
 https://www.instagram.com/cutexbaby7037/#
-![Immagine 2025-09-15 194313.png](/img/user/Immagine%202025-09-15%20194313.png)
+![Immagine 2025-09-15 194313.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20194313.png)
+
+## themartoon
+https://www.instagram.com/themartoon/#
+![Immagine 2025-09-15 204858.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204858.png)
 
 ## dazouo
 https://www.instagram.com/dazouo/#
-![Immagine 2025-09-15 194351.png](/img/user/Immagine%202025-09-15%20194351.png)
+![Immagine 2025-09-15 194351.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20194351.png)
 
 ## Cyriak Harris
 ](https://www.instagram.com/cyriak_h/#)
@@ -65,3 +77,7 @@ https://www.instagram.com/dazouo/#
 ## oripeerdream
 ](https://www.instagram.com/oripeerdream?igsh=dDIxd2hmdGxtNjlr#)
 ![Immagine 2025-09-14 171250.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20171250.png)
+
+## markkandres
+https://www.instagram.com/markkandres/#
+![Immagine 2025-09-15 203823.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20203823.png)

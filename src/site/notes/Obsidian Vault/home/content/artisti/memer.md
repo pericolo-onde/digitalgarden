@@ -5,7 +5,15 @@
 
 ## bjornd.al
 https://www.instagram.com/bjornd.al/reels/#
-![Immagine 2025-09-15 195222.png](/img/user/Immagine%202025-09-15%20195222.png)
+![Immagine 2025-09-15 195222.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20195222.png)
+
+## the_chad_of_kvatch
+https://www.instagram.com/the_chad_of_kvatch/#
+![Immagine 2025-09-15 201453.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20201453.png)
+
+## werecostcoguys.mp4
+https://www.instagram.com/werecostcoguys.mp4/#
+![Immagine 2025-09-15 223942.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20223942.png)
 
 ## kazzcoyote
 https://www.instagram.com/kazzcoyote/#
