@@ -47,3 +47,15 @@
 ](https://www.instagram.com/derekrattoo/#)
 ![Immagine 2025-09-14 182306.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182306.png)
 
+## nomn.pop
+https://www.instagram.com/nomn.pop/#
+![Immagine 2025-09-15 192122.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192122.png)
+
+## milanbanjanin
+https://www.instagram.com/milanbanjanin/#
+![Immagine 2025-09-15 192231.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192231.png)
+
+## redbugslove
+https://www.instagram.com/redbugslove/#
+![Immagine 2025-09-15 192904.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192904.png)
+

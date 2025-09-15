@@ -38,3 +38,11 @@ https://www.ditto-nation.com/
 
 https://www.instagram.com/realmea0719#
 ![Immagine 2025-09-15 114652.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20114652.png)
+
+## core_oso_
+https://www.instagram.com/core_oso_/#
+![Immagine 2025-09-15 193754.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193754.png)
+
+## wilskaana
+https://www.instagram.com/wilskaana/#
+![Immagine 2025-09-15 193914.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193914.png)

@@ -15,8 +15,12 @@
 ](https://www.instagram.com/mauriziogiacomoaltieri/#)
 ![Immagine 2025-09-14 182824.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182824.png)
 
+## zwyrtech
+https://www.instagram.com/zwyrtech/#
+![Immagine 2025-09-15 190829.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20190829.png)
+
 ## trashyclothing
-](https://www.instagram.com/trashyclothing/#)
+https://www.instagram.com/trashyclothing/#
 ![image-36.png](/img/user/Obsidian%20Vault/images/image-36.png)
 ## lynxziqi
 ](https://www.instagram.com/lynxziqi/#)
@@ -27,6 +31,10 @@
 ## bodyamplificationdevices
 ](https://www.instagram.com/bodyamplificationdevices/#)
 ![image-8 1.png](/img/user/Obsidian%20Vault/images/image-8%201.png)
+
+# krobos
+https://www.instagram.com/krobos/#
+![Immagine 2025-09-15 192511.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192511.png)
 
 ## namevarg.ltd
 ](https://www.instagram.com/namevarg.ltd/#)
@@ -58,6 +66,14 @@
 ## John Alexander Skeltonhn
 ](https://www.instagram.com/skeltonjohn/#)
 ![Immagine 2025-09-14 173456.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173456.png)
+
+## rachelfrosthatter
+https://www.instagram.com/rachelfrosthatter/#
+![Immagine 2025-09-15 193405.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193405.png)
+
+## thecrafty_beggars
+https://www.instagram.com/thecrafty_beggars/#
+![Immagine 2025-09-15 193447.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193447.png)
 
 ## achillepinto
 ](https://www.instagram.com/achillepinto/#)

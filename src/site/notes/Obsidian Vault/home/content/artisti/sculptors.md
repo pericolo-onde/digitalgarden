@@ -77,3 +77,11 @@
 ](https://www.instagram.com/tobynjacobs/#)
 ![Immagine 2025-09-14 182417.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182417.png)
 
+## ram2isflat
+https://www.instagram.com/ram2isflat/#
+![Immagine 2025-09-15 191334.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191334.png)
+
+## federico_solmi
+https://www.instagram.com/federico_solmi/#
+![Immagine 2025-09-15 192341.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192341.png)
+

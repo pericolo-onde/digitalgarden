@@ -3,9 +3,25 @@
 ---
 
 
+## kazzcoyote
+https://www.instagram.com/kazzcoyote/#
+![Immagine 2025-09-15 191515.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191515.png)
+
+## yappersteak
+https://www.instagram.com/yappersteak/#
+![Immagine 2025-09-15 192617.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192617.png)
+
+## missing0714
+https://www.instagram.com/missing0714/#
+![Immagine 2025-09-15 193255.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193255.png)
+
 ## frightenedsheep25937582
 https://www.instagram.com/frightenedsheep25937582/#
 ![Immagine 2025-09-14 173735.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173735.png)
+
+## w0w_ma0
+https://www.instagram.com/w0w_ma0/#
+![Immagine 2025-09-15 191924.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191924.png)
 
 ## thealienarms
 https://www.instagram.com/thealienarms?igsh=MWd6OHF0Z3NoaDczaw%3D%3D#
@@ -83,3 +99,8 @@ https://www.youtube.com/@burialgoods
 ## isaxophoneu
 https://www.instagram.com/isaxophoneu?igsh=cjBiNXVraDB6OThw#
 ![Immagine 2025-09-15 114909.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20114909.png)
+
+## skeeter.mcbeaver
+https://www.instagram.com/skeeter.mcbeaver/#
+![Immagine 2025-09-15 190417.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20190417.png)
+

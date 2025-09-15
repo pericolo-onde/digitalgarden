@@ -30,6 +30,10 @@ https://youtu.be/XPGHpBOt5sE?si=ytZE4xTgKGQfEJM7
 # Ben Nobuto
 https://www.youtube.com/@bennobuto/videos
 
-## noodlecan
+# noodlecan
 (https://www.instagram.com/noodlecan/#)
 ![Immagine 2025-09-14 164801.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164801.png)
+
+## bogdanraczynski
+https://www.instagram.com/bogdanraczynski/#
+![Immagine 2025-09-15 193141.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193141.png)

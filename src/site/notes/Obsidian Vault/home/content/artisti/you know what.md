@@ -14,9 +14,21 @@ https://www.instagram.com/alessiowedgie#
 https://www.instagram.com/candycoatedus#
 ![Immagine 2025-09-15 114807.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20114807.png)
 
+## wetlook_cosplay_princess
+https://www.instagram.com/wetlook_cosplay_princess/#
+![Immagine 2025-09-15 193653.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193653.png)
+
 # Amanda's Foot court
 https://www.youtube.com/@amandag8258
 ![amanda.jpg|637x359](/img/user/Obsidian%20Vault/images/amanda.jpg)
+
+## realpedalpumping
+https://www.instagram.com/realpedalpumping/#
+![Immagine 2025-09-15 192034.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192034.png)
+
+## johnwhalen69
+https://www.instagram.com/johnwhalen69#
+![Immagine 2025-09-15 190536.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20190536.png)
 
 ## toco.ev
 (https://www.instagram.com/toco.ev/#)
@@ -24,6 +36,10 @@ https://www.youtube.com/@amandag8258
 ## furrjoi001
 (https://www.instagram.com/furrjoi001/#)
 ![image-25.png](/img/user/Obsidian%20Vault/images/image-25.png)
+
+## joeslilsimp
+https://www.instagram.com/joeslilsimp/#
+![Immagine 2025-09-15 191709.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191709.png)
 
 ## taithinnn
 ](https://www.instagram.com/taithinnn/#)
