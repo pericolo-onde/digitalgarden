@@ -11,6 +11,10 @@
 ](https://www.instagram.com/kingcon2k11/#)
 ![Immagine 2025-09-14 180958.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180958.png)
 
+## plastekpet
+https://www.instagram.com/plastekpet/#
+![Immagine 2025-09-15 224704.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20224704.png)
+
 ## eggstonite
 https://www.instagram.com/eggstonite/#
 ![Immagine 2025-09-15 191611.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191611.png)

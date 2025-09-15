@@ -19,6 +19,14 @@ https://www.instagram.com/princemonkey/#
 https://www.instagram.com/stchadsprojects/#
 ![Immagine 2025-09-15 223512.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20223512.png)
 
+## ppuri_
+https://www.instagram.com/ppuri_/#
+![Immagine 2025-09-15 224501.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20224501.png)
+
+## something_wkd
+https://www.instagram.com/something_wkd/#
+![Immagine 2025-09-15 231409.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20231409.png)
+
 ## wojtyl.a
 (https://www.instagram.com/wojtyl.a/#)
 ![image-19.png](/img/user/Obsidian%20Vault/images/image-19.png)
@@ -67,6 +75,10 @@ https://www.instagram.com/johnsleepymoran/#
 ## tobias_bradford
 (https://www.instagram.com/tobias_bradford/#)
 ![image-2 3.png](/img/user/Obsidian%20Vault/images/image-2%203.png)
+
+## tomhardwickallan
+https://www.instagram.com/tomhardwickallan/#
+![Immagine 2025-09-15 225353.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20225353.png)
 
 ## fmonthoux
 ](https://www.instagram.com/fmonthoux/#)

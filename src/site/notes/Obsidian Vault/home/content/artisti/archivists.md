@@ -58,3 +58,7 @@ https://www.instagram.com/rebornbabygiulia/#
 ## pimpy_g
 https://www.instagram.com/pimpy_g/#
 ![Immagine 2025-09-15 222917.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20222917.png)
+
+## moke056
+https://www.instagram.com/moke056/#
+![Immagine 2025-09-15 224928.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20224928.png)

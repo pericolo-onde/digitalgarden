@@ -31,6 +31,10 @@ https://www.instagram.com/ogawa_tomoko_desu/#
 https://www.instagram.com/zwyrtech/#
 ![Immagine 2025-09-15 190829.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20190829.png)
 
+## jeanfrancoismimilla
+https://www.instagram.com/jeanfrancoismimilla/#
+![Immagine 2025-09-15 225115.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20225115.png)
+
 ## trashyclothing
 https://www.instagram.com/trashyclothing/#
 ![image-36.png](/img/user/Obsidian%20Vault/images/image-36.png)
@@ -86,6 +90,14 @@ https://www.instagram.com/rachelfrosthatter/#
 ## thecrafty_beggars
 https://www.instagram.com/thecrafty_beggars/#
 ![Immagine 2025-09-15 193447.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193447.png)
+
+## tomaszumbras
+https://www.instagram.com/tomaszumbras/#
+![Immagine 2025-09-15 231036.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20231036.png)
+
+## isabelnarayani
+https://www.instagram.com/isabelnarayani/#
+![Immagine 2025-09-15 231134.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20231134.png)
 
 ## achillepinto
 ](https://www.instagram.com/achillepinto/#)
