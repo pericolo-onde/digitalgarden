@@ -10,6 +10,10 @@ https://www.youtube.com/@Flocflocus/videos
 https://www.instagram.com/alessiowedgie#
 ![Immagine 2025-09-14 185452.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20185452.png)
 
+## candycoatedus
+https://www.instagram.com/candycoatedus#
+![Immagine 2025-09-15 114807.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20114807.png)
+
 # Amanda's Foot court
 https://www.youtube.com/@amandag8258
 ![amanda.jpg|637x359](/img/user/Obsidian%20Vault/images/amanda.jpg)
