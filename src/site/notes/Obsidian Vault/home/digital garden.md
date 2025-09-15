@@ -2,16 +2,16 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/digital-garden/","tags":["gardenEntry"]}
 ---
 
-[[Obsidian Vault/home/content/content\|content]]
 
-[[Obsidian Vault/home/projects/project\|project]]
 
-[[Obsidian Vault/home/artisti/artisti\|artisti]]
 
+[![scatoloni.png](/img/user/Obsidian%20Vault/images/scatoloni.png)](https://pericoloonde.xyz/obsidian-vault/home/content/content/)
 
 
 
 
+[![tappeto.png](/img/user/Obsidian%20Vault/images/tappeto.png)](https://pericoloonde.xyz/obsidian-vault/home/projects/project/)
 
 
-[![pngegg.png](/img/user/pngegg.png)](https://pericoloonde.xyz/obsidian-vault/home/artisti/artisti/)
+
+[![lampadinE.png](/img/user/Obsidian%20Vault/images/lampadinE.png)](https://pericoloonde.xyz/obsidian-vault/home/artisti/artisti/)

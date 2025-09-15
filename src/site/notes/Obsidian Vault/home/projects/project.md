@@ -6,3 +6,4 @@
 [[Obsidian Vault/home/projects/magliette amici\|magliette amici]]
 
 [[Obsidian Vault/home/projects/stickers\|stickers]]
+
