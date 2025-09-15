@@ -15,3 +15,8 @@
 
 
 [![lampadinE.png](/img/user/Obsidian%20Vault/images/lampadinE.png)](https://pericoloonde.xyz/obsidian-vault/home/artisti/artisti/)
+
+
+
+[[Obsidian Vault/home/content/content\|content]] [[Obsidian Vault/home/projects/project\|project]] [[Obsidian Vault/home/artisti/artisti\|artisti]]
+
