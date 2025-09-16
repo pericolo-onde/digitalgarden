@@ -10,3 +10,6 @@
 
 [[Obsidian Vault/home/content/clubs\|clubs]]
 
+[[Obsidian Vault/home/content/musei/musei\|musei]]
+
+
