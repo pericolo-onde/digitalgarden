@@ -17,3 +17,9 @@
 [[Obsidian Vault/home/content/musei/Palazzo Reale di Amsterdam\|Palazzo Reale di Amsterdam]]
 
 [[Obsidian Vault/home/content/musei/Rijksmuseum\|Rijksmuseum]]
+
+[[Obsidian Vault/home/content/musei/Giardini di Villa Borghese\|Giardini di Villa Borghese]]
+
+[[Obsidian Vault/home/content/musei/Cimitero Monumentale di Milano\|Cimitero Monumentale di Milano]]
+
+[[Obsidian Vault/home/content/musei/Castello Sforzesco\|Castello Sforzesco]]
