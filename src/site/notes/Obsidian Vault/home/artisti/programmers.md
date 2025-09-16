@@ -27,3 +27,7 @@ https://www.instagram.com/red.degree/#
 https://www.instagram.com/wttdotm/#
 ![image 7.png](/img/user/Obsidian%20Vault/images/image%207.png)
 
+## sugiyamer
+https://www.instagram.com/sugiyamer#
+![Immagine 2025-09-16 223505.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20223505.png)
+

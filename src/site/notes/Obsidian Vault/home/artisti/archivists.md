@@ -50,6 +50,10 @@ https://www.instagram.com/core_oso_/#
 https://www.instagram.com/wilskaana/#
 ![Immagine 2025-09-15 193914.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193914.png)
 
+## kinyohq
+https://www.instagram.com/kinyohq#
+![Immagine 2025-09-16 223016.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20223016.png)
+
 ## rebornbabygiulia
 https://www.instagram.com/rebornbabygiulia/#
 ![Immagine 2025-09-15 201556.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20201556.png)
@@ -61,3 +65,8 @@ https://www.instagram.com/pimpy_g/#
 ## moke056
 https://www.instagram.com/moke056/#
 ![Immagine 2025-09-15 224928.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20224928.png)
+
+## in_vo_aleholm_studentkampen
+https://www.instagram.com/in_vo_aleholm_studentkampen#
+![Immagine 2025-09-16 223310.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20223310.png)
+

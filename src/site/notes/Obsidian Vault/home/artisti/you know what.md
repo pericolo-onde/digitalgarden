@@ -38,6 +38,10 @@ https://www.youtube.com/@amandag8258
 https://www.instagram.com/realpedalpumping/#
 ![Immagine 2025-09-15 192034.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192034.png)
 
+## sneaker__styler
+https://www.instagram.com/sneaker__styler/#
+![Immagine 2025-09-16 222846.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20222846.png)
+
 ## astermeister
 https://www.instagram.com/astermeister/#
 ![Immagine 2025-09-15 201210.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20201210.png)
@@ -88,4 +92,8 @@ https://www.instagram.com/ayleen23/#
 ## gungemad
 https://www.instagram.com/gungemad/#
 ![Immagine 2025-09-14 180827.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20180827.png)
+
+## wet_nesday
+https://www.instagram.com/wet_nesday#
+![Immagine 2025-09-16 223418.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20223418.png)
 

@@ -27,6 +27,10 @@ https://www.instagram.com/ppuri_/#
 https://www.instagram.com/something_wkd/#
 ![Immagine 2025-09-15 231409.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20231409.png)
 
+## sylvie.macmillan
+https://www.instagram.com/sylvie.macmillan?igsh=MTBnOWo5aHlzcnZwNA%3D%3D#
+![Immagine 2025-09-16 222724.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20222724.png)
+
 ## wojtyl.a
 https://www.instagram.com/wojtyl.a/#
 ![image-19.png](/img/user/Obsidian%20Vault/images/image-19.png)
@@ -42,6 +46,10 @@ https://www.instagram.com/bigaxe_tornitura/#
 ## anthr0morph
 https://www.instagram.com/anthr0morph/#
 ![image-38.png](/img/user/Obsidian%20Vault/images/image-38.png)
+
+## nozhiwojifen1
+https://www.instagram.com/nozhiwojifen1/#
+![Immagine 2025-09-16 223219.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20223219.png)
 
 ## codyedgewater
 https://www.instagram.com/codyedgewater/#)
