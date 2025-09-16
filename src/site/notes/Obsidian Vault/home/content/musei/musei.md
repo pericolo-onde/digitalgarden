@@ -7,3 +7,5 @@
 [[Obsidian Vault/home/content/musei/artissima\|artissima]]
 
 [[Obsidian Vault/home/content/musei/Centro di Fotografia Indipendente\|Centro di Fotografia Indipendente]]
+
+[[Obsidian Vault/home/content/musei/The Latvian National Museum of Art\|The Latvian National Museum of Art]]
