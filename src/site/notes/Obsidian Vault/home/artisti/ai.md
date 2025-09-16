@@ -23,6 +23,10 @@ https://www.instagram.com/eggstonite/#
 https://www.instagram.com/mowgly_lee/#
 ![Immagine 2025-09-15 201756.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20201756.png)
 
+## canekzapatap
+https://www.instagram.com/canekzapatap#
+![Immagine 2025-09-16 235847.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20235847.png)
+
 ## 0nastiia
 https://www.instagram.com/0nastiia/#
 ![image-1 1.png](/img/user/Obsidian%20Vault/images/image-1%201.png)
