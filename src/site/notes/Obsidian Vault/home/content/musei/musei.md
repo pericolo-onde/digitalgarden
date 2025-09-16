@@ -23,3 +23,8 @@
 [[Obsidian Vault/home/content/musei/Cimitero Monumentale di Milano\|Cimitero Monumentale di Milano]]
 
 [[Obsidian Vault/home/content/musei/Castello Sforzesco\|Castello Sforzesco]]
+
+[[Obsidian Vault/home/content/musei/Gallerie d’Italia Milano\|Gallerie d’Italia Milano]]
+
+
+
