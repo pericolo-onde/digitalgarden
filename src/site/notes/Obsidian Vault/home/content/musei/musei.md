@@ -13,3 +13,7 @@
 [[Obsidian Vault/home/content/musei/Palazzo delle Esposizioni\|Palazzo delle Esposizioni]]
 
 [[Obsidian Vault/home/content/musei/Museo Ninfeo\|Museo Ninfeo]]
+
+[[Obsidian Vault/home/content/musei/Palazzo Reale di Amsterdam\|Palazzo Reale di Amsterdam]]
+
+[[Obsidian Vault/home/content/musei/Rijksmuseum\|Rijksmuseum]]
