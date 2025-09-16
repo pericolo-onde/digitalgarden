@@ -1,5 +1,0 @@
----
-{"dg-publish":true,"permalink":"/obsidian-vault/home/content/musei/museo-e-real-bosco-di-capodimonte/"}
----
-
-![08C5DEC9-6559-4677-9492-1B033EB3B7D3.jpg](/img/user/Obsidian%20Vault/images/08C5DEC9-6559-4677-9492-1B033EB3B7D3.jpg)![614C308E-DAA9-4076-91D6-657FA0C724B3.jpg](/img/user/Obsidian%20Vault/images/614C308E-DAA9-4076-91D6-657FA0C724B3.jpg)![IMG_2883.jpeg](/img/user/Obsidian%20Vault/images/IMG_2883.jpeg)![IMG_2884.jpeg](/img/user/Obsidian%20Vault/images/IMG_2884.jpeg)![IMG_2885.jpeg](/img/user/Obsidian%20Vault/images/IMG_2885.jpeg)![IMG_2886.jpeg](/img/user/Obsidian%20Vault/images/IMG_2886.jpeg)![IMG_2887.jpeg](/img/user/Obsidian%20Vault/images/IMG_2887.jpeg)![IMG_2888.jpeg](/img/user/Obsidian%20Vault/images/IMG_2888.jpeg)![IMG_2889.jpeg](/img/user/Obsidian%20Vault/images/IMG_2889.jpeg)![IMG_2890.jpeg](/img/user/Obsidian%20Vault/images/IMG_2890.jpeg)![IMG_2891.jpeg](/img/user/Obsidian%20Vault/images/IMG_2891.jpeg)![IMG_2892.jpeg](/img/user/Obsidian%20Vault/images/IMG_2892.jpeg)![IMG_2894.jpeg](/img/user/Obsidian%20Vault/images/IMG_2894.jpeg)![IMG_2895.jpeg](/img/user/Obsidian%20Vault/images/IMG_2895.jpeg)
