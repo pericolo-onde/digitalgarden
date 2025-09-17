@@ -11,3 +11,6 @@
 
 [[Obsidian Vault/home/projects/stickers\|stickers]]
 
+[[Obsidian Vault/home/projects/maria\|maria]]
+
+
