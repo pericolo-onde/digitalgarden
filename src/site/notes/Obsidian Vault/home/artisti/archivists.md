@@ -78,3 +78,8 @@ https://www.instagram.com/888_444.222#
 ## truthseekerfemale
 https://www.instagram.com/truthseekerfemale#
 ![Immagine 2025-09-18 012958.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-18%20012958.png)
+
+# Damon Zucconi
+https://www.are.na/damon-zucconi/channels
+![Immagine 2025-09-18 121955.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-18%20121955.png)
+

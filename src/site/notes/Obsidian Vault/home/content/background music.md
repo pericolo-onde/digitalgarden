@@ -48,3 +48,12 @@ https://www.youtube.com/watch?v=vQg-ItQRfMc
 # Rubinho E Mauro Assumpção - Perfeitamente, Justamente Quando Cheguei
 https://www.youtube.com/watch?v=KzWLWPK8nMc
 ![a3476549903_10.jpg](/img/user/Obsidian%20Vault/images/a3476549903_10.jpg)
+
+# Rupa
+https://youtu.be/W2avGFXiueo?si=eE0GhOK1n72tkqnv
+![image 8.png](/img/user/Obsidian%20Vault/images/image%208.png)
+
+# Hailu Mergia & Dahlak Band
+https://youtube.com/playlist?list=PLMh9h8twoGyKxy4PJGb1_TLJMyg63bvyg&si=dgvCKj693bn8hlqO
+![image.png](/img/user/image.png)
+

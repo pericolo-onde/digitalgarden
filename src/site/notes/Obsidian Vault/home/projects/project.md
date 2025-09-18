@@ -13,4 +13,6 @@
 
 [[Obsidian Vault/home/projects/maria\|maria]]
 
+[[Obsidian Vault/home/projects/playlists\|playlists]]
+
 
