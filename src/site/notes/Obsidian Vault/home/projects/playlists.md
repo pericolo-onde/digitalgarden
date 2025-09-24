@@ -14,7 +14,7 @@
   - Olson – Boards of Canada - Music Has The Right To Children
   - 240°, 100°, 100° – Damon Zucconi - Untitled Substance
   - 20220302 – Ryuichi Sakamoto - 12
-![Copy of Untitled Design (11).png](/img/user/Copy%20of%20Untitled%20Design%20(11).png)
+![Copy of Untitled Design (11).png](/img/user/Obsidian%20Vault/images/Copy%20of%20Untitled%20Design%20(11).png)
 
 # al centro tra la terza colonna
   - Esta Noche – Yahritza Y Su Esencia - Obsessed (Deluxe)
@@ -28,7 +28,7 @@
   - stay alone – meat computer - stay alone
   - Tendril – Lyra Pramuk - Fountain
   - Gosh – Jamie xx, MC Moose - In Colour
-![Copy of Untitled Design (8).png](/img/user/Copy%20of%20Untitled%20Design%20(8).png)
+![Copy of Untitled Design (8).png](/img/user/Obsidian%20Vault/images/Copy%20of%20Untitled%20Design%20(8).png)
 
 # the strange relationship between life and death of a city in southern Italy (col cuore in gola)
   - THANK U – DOMi & JD BECK - THANK U
@@ -43,7 +43,7 @@
   - Sindrome – Venerus, MACE - A che punto è la notte
   - Luna Rossa – Roberto Murolo - La grande canzone Napoletana
   - Gommapiuma – Giorgio Poi - Gommapiuma
-![Copy of Untitled Design (3).png](/img/user/Copy%20of%20Untitled%20Design%20(3).png)
+![Copy of Untitled Design (3).png](/img/user/Obsidian%20Vault/images/Copy%20of%20Untitled%20Design%20(3).png)
 
 # morale (Dinamica indisposizione)
   - V – Gregg Kowalsky - Tape Chants
@@ -61,6 +61,6 @@
   - Angels – XIX - A Short Content
   - 10 Pieces, Op. 58: No. 2, Scherzino – Jean Sibelius, Olli Mustonen - Sibelius, J.: 10 Pieces / Jaakarien Marssi / 13 Pieces / 2 Rondinos / 10 Little Pieces
   - 10 Little Pieces, Op. 34: No. 2, Air de danse – Jean Sibelius, Olli Mustonen - Sibelius, J.: 10 Pieces / Jaakarien Marssi / 13 Pieces / 2 Rondinos / 10 Little Pieces
-![Copy of Untitled Design (2).png](/img/user/Copy%20of%20Untitled%20Design%20(2).png)
+![Copy of Untitled Design (2).png](/img/user/Obsidian%20Vault/images/Copy%20of%20Untitled%20Design%20(2).png)
 
 

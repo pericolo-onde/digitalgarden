@@ -83,3 +83,6 @@ https://www.instagram.com/truthseekerfemale#
 https://www.are.na/damon-zucconi/channels
 ![Immagine 2025-09-18 121955.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-18%20121955.png)
 
+## kyotologiae
+https://www.instagram.com/kyotologiae#
+![Immagine 2025-09-24 172207.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-24%20172207.png)

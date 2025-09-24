@@ -15,6 +15,10 @@ https://www.instagram.com/donato_piccolo/#
 https://www.instagram.com/princemonkey/#
 ![Immagine 2025-09-15 201254.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20201254.png)
 
+## simoncarle__
+https://www.instagram.com/simoncarle__/#
+![Immagine 2025-09-24 171824.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-24%20171824.png)
+
 ## stchadsprojects
 https://www.instagram.com/stchadsprojects/#
 ![Immagine 2025-09-15 223512.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20223512.png)

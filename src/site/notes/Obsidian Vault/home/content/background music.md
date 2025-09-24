@@ -55,5 +55,5 @@ https://youtu.be/W2avGFXiueo?si=eE0GhOK1n72tkqnv
 
 # Hailu Mergia & Dahlak Band
 https://youtube.com/playlist?list=PLMh9h8twoGyKxy4PJGb1_TLJMyg63bvyg&si=dgvCKj693bn8hlqO
-![image.png](/img/user/image.png)
+![image 9.png](/img/user/Obsidian%20Vault/images/image%209.png)
 
