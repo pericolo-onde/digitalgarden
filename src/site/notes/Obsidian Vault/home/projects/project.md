@@ -16,3 +16,5 @@
 [[Obsidian Vault/home/projects/playlists\|playlists]]
 
 
+
+[[Obsidian Vault/home/digital garden\|digital garden]]

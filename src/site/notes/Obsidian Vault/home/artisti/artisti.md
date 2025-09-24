@@ -34,6 +34,9 @@
 
 
 
+[[Obsidian Vault/home/digital garden\|digital garden]]
+
+
 
 
 

@@ -11,3 +11,6 @@
 [[Obsidian Vault/home/content/musei/musei\|musei]]
 
 
+
+[[Obsidian Vault/home/digital garden\|digital garden]]
+
