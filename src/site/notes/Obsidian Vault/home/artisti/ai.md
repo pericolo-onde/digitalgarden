@@ -37,11 +37,11 @@ https://www.instagram.com/ronjafman/#
 
 ## imparsthetic
 https://www.instagram.com/imparsthetic/#
-![image-3.png](/img/user/Obsidian%20Vault/images/image-3.png)
+![Immagine 2025-09-26 000110.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20000110.png)
 
 ## arvidabystrom
 https://www.instagram.com/arvidabystrom/#
-![image-5.png](/img/user/Obsidian%20Vault/images/image-5.png)
+![uisaxhuhaq.png](/img/user/Obsidian%20Vault/images/uisaxhuhaq.png)
 
 ## cd_masterizzato
 https://www.instagram.com/cd_masterizzato/#
@@ -57,11 +57,11 @@ https://www.instagram.com/cd_inventore/#
 
 ## ghost_bug_online
 https://www.instagram.com/ghost_bug_online/#
-![image-12.png](/img/user/Obsidian%20Vault/images/image-12.png)
+![Immagine 2025-09-26 000344.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20000344.png)
 
 ## toad.tower
 https://www.instagram.com/toad.tower/#
-![image-13.png](/img/user/Obsidian%20Vault/images/image-13.png)
+![Immagine 2025-09-26 000402.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20000402.png)
 
 # walkedoutneimans
 https://www.instagram.com/walkedoutneimans/#
@@ -100,3 +100,6 @@ https://www.instagram.com/shadespaths/#
 https://www.instagram.com/bookie_art/#
 ![bookie_art.png](/img/user/Obsidian%20Vault/images/bookie_art.png)
 
+## widemouh
+https://www.instagram.com/widemouh?igsh=MWZ0dXo2Ym5nOWdwcw%3D%3D#
+![wide abvhg.png](/img/user/Obsidian%20Vault/images/wide%20abvhg.png)

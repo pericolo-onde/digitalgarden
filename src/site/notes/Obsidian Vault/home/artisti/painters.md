@@ -119,3 +119,7 @@ https://www.instagram.com/bugdumb/#
 ## yunbomu
 https://www.instagram.com/yunbomu/#
 ![Immagine 2025-09-15 231220.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20231220.png)
+
+## bigfatkittykittycat
+https://www.instagram.com/bigfatkittykittycat?igsh=ODdqeGNjMXdsdW5w#
+![Immagine 2025-09-26 001204.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20001204.png)

@@ -19,3 +19,6 @@
 
 [[Obsidian Vault/home/content/library/La pianificazione urbana e regionale\|La pianificazione urbana e regionale]]
 
+[[Obsidian Vault/home/content/library/lampade\|lampade]]
+
+

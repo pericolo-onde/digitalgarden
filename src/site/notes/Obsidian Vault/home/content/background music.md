@@ -12,6 +12,14 @@ https://youtu.be/94oOi7rS1XI?si=YWTFYESedDPCT8mw
 https://youtu.be/-1OBwe3QgOE?si=YtVCdzzo1awLsi7s
 ![Immagine 2025-09-18 120238.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-18%20120238.png)
 
+# Umm Kulthum الف ليلة وليله ام كلثوم
+https://youtu.be/3xzySqYNKkA?si=ZEqhRN0sFqeJy6wn
+https://youtu.be/XPGHpBOt5sE?si=ytZE4xTgKGQfEJM7
+
+# مـنـيـر الـمـهـدي : مـوشـحـات و أدوار
+https://www.youtube.com/watch?v=qEdqvw_n1Mk&list=RDqEdqvw_n1Mk&start_radio=1
+![maxresdefault.jpg](/img/user/Obsidian%20Vault/images/maxresdefault.jpg)
+
 # Sayed darwish - Ana Haweit
 https://youtu.be/4RDVUZTqmt8?si=9Eud7pktIfAa4pjm
 
@@ -24,9 +32,7 @@ https://youtu.be/ktTfV6VEATk?si=7IKRscckm6s6QuRG
 # Kemani Tatyos Ekserciyan
 https://youtu.be/24xU6h0kvEs?si=DgUhah2UStiPqRuW
 
-# Umm Kulthum الف ليلة وليله ام كلثوم
-https://youtu.be/3xzySqYNKkA?si=ZEqhRN0sFqeJy6wn
-https://youtu.be/XPGHpBOt5sE?si=ytZE4xTgKGQfEJM7
+
 
 # Ben Nobuto
 https://www.youtube.com/@bennobuto/videos
@@ -57,3 +63,14 @@ https://youtu.be/W2avGFXiueo?si=eE0GhOK1n72tkqnv
 https://youtube.com/playlist?list=PLMh9h8twoGyKxy4PJGb1_TLJMyg63bvyg&si=dgvCKj693bn8hlqO
 ![image 9.png](/img/user/Obsidian%20Vault/images/image%209.png)
 
+# Tatsuro Yamashita 山下達郎 - Pocket Music ポケット
+https://www.youtube.com/watch?v=IObgh3JCUpA&list=RDIObgh3JCUpA&start_radio=1
+![616rOqtAcGL.png](/img/user/Obsidian%20Vault/images/616rOqtAcGL.png)
+
+# Takashi Kokubo (小久保隆) - Blessings Of The Forest (森の恵み)
+https://www.youtube.com/watch?v=7Ul_1yuxEVs&list=RD7Ul_1yuxEVs&start_radio=1
+![小久保隆-takashi-kokubo-森の恵み-Cover-A.png](/img/user/Obsidian%20Vault/images/%E5%B0%8F%E4%B9%85%E4%BF%9D%E9%9A%86-takashi-kokubo-%E6%A3%AE%E3%81%AE%E6%81%B5%E3%81%BF-Cover-A.png)
+
+# Takatoshi Naitoh (内藤孝敏) - In The Forest
+https://www.youtube.com/watch?v=sZNAYp5xBO4&t=339s
+![KQPK-X3w_1200x1200.png](/img/user/Obsidian%20Vault/images/KQPK-X3w_1200x1200.png)
