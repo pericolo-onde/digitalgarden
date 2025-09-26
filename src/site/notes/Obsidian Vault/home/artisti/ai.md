@@ -103,3 +103,9 @@ https://www.instagram.com/bookie_art/#
 ## widemouh
 https://www.instagram.com/widemouh?igsh=MWZ0dXo2Ym5nOWdwcw%3D%3D#
 ![wide abvhg.png](/img/user/Obsidian%20Vault/images/wide%20abvhg.png)
+
+## paul__plane
+https://www.instagram.com/paul__plane?igsh=MWg2a3RudHAxMGNscw%3D%3D#
+![Immagine 2025-09-26 234111.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20234111.png)
+
+

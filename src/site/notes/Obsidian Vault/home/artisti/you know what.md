@@ -98,6 +98,10 @@ https://www.instagram.com/the.bellyking?igsh=NzM5dzJqaWgyb3Fj#
 https://www.instagram.com/gainerology/#
 ![fat ahaohahq911.png](/img/user/Obsidian%20Vault/images/fat%20ahaohahq911.png)
 
+## fatty_and_his_friends_
+https://www.instagram.com/fatty_and_his_friends_/#
+![Immagine 2025-09-26 234301.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20234301.png)
+
 ## mihulicious9
 https://www.instagram.com/mihulicious9/#
 ![Immagine 2025-09-14 173319.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173319.png)
