@@ -74,3 +74,10 @@ https://www.youtube.com/watch?v=7Ul_1yuxEVs&list=RD7Ul_1yuxEVs&start_radio=1
 # Takatoshi Naitoh (内藤孝敏) - In The Forest
 https://www.youtube.com/watch?v=sZNAYp5xBO4&t=339s
 ![KQPK-X3w_1200x1200.png](/img/user/Obsidian%20Vault/images/KQPK-X3w_1200x1200.png)
+
+
+# Saint-Saëns: 1. Cellokonzert ∙ hr-Sinfonieorchester ∙ Bruno Philippe ∙ Christoph Eschenbach
+https://www.youtube.com/watch?v=GsJQNwjrIA8&list=RDGsJQNwjrIA8&start_radio=1
+![maxresdefault.png](/img/user/Obsidian%20Vault/images/maxresdefault.png)
+
+
