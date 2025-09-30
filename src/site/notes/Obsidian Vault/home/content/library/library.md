@@ -15,6 +15,8 @@
 
 [[Obsidian Vault/home/content/library/Santi\|Santi]]
 
+[[Obsidian Vault/home/content/library/screenshots/screenshot\|screenshot]]
+
 [[Obsidian Vault/home/content/library/popx\|popx]]
 
 [[Obsidian Vault/home/content/library/La pianificazione urbana e regionale\|La pianificazione urbana e regionale]]

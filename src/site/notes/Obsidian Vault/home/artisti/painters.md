@@ -60,6 +60,10 @@ https://www.instagram.com/running.standing.still/#
 https://www.instagram.com/khwampa/#
 ![Immagine 2025-09-14 164139.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164139.png)
 
+# Brent Wong
+https://www.brentwong-painter.com/
+![Immagine 2025-09-30 235750wddqq111.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-30%20235750wddqq111.png)
+
 ## davehollowellart
 https://www.instagram.com/davehollowellart/#
 ![Immagine 2025-09-15 225617.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20225617.png)

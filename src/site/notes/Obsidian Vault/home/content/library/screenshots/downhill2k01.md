@@ -1,0 +1,5 @@
+---
+{"dg-publish":true,"permalink":"/obsidian-vault/home/content/library/screenshots/downhill2k01/"}
+---
+
+![IMG_0076.png](/img/user/Obsidian%20Vault/images/IMG_0076.png)![IMG_0079.png](/img/user/Obsidian%20Vault/images/IMG_0079.png)![IMG_0080.png](/img/user/Obsidian%20Vault/images/IMG_0080.png)![IMG_0127.png](/img/user/Obsidian%20Vault/images/IMG_0127.png)![IMG_0133.png](/img/user/Obsidian%20Vault/images/IMG_0133.png)![IMG_0161.png](/img/user/Obsidian%20Vault/images/IMG_0161.png)![IMG_0359.png](/img/user/Obsidian%20Vault/images/IMG_0359.png)![IMG_0450.png](/img/user/Obsidian%20Vault/images/IMG_0450.png)![IMG_0486.png](/img/user/Obsidian%20Vault/images/IMG_0486.png)![IMG_0701.png](/img/user/Obsidian%20Vault/images/IMG_0701.png)![IMG_0954.png](/img/user/Obsidian%20Vault/images/IMG_0954.png)![IMG_1071.png](/img/user/Obsidian%20Vault/images/IMG_1071.png)![IMG_1090.png](/img/user/Obsidian%20Vault/images/IMG_1090.png)![IMG_1170.png](/img/user/Obsidian%20Vault/images/IMG_1170.png)![IMG_1776.png](/img/user/Obsidian%20Vault/images/IMG_1776.png)![IMG_3053.png](/img/user/Obsidian%20Vault/images/IMG_3053.png)![IMG_3108.png](/img/user/Obsidian%20Vault/images/IMG_3108.png)
