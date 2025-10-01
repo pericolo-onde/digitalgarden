@@ -148,3 +148,7 @@ https://www.instagram.com/federico_solmi/#
 https://www.instagram.com/aaronvartiainen0/#
 ![Immagine 2025-09-15 205342.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20205342.png)
 
+## kevinfrancisgraystudio
+https://www.instagram.com/kevinfrancisgraystudio/#
+![Immagine 2025-10-01 233716.png](/img/user/Immagine%202025-10-01%20233716.png)
+

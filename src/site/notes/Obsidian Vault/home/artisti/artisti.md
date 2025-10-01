@@ -8,6 +8,8 @@
 
 [[Obsidian Vault/home/artisti/archivists\|archivists]]
 
+[[artigiani\|artigiani]]
+
 [[Obsidian Vault/home/artisti/fashion workers\|fashion workers]]
 
 [[Obsidian Vault/home/artisti/favorite artists\|favorite artists]]
