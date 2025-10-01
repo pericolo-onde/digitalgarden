@@ -15,6 +15,7 @@
 
 [[Obsidian Vault/home/projects/playlists\|playlists]]
 
+[[Obsidian Vault/home/projects/interpassive\|interpassive]]
 
 
 [[Obsidian Vault/home/digital garden\|digital garden]]
