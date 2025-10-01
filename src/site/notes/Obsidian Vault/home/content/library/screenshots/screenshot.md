@@ -6,6 +6,8 @@
 
 [[Obsidian Vault/home/content/library/screenshots/libri\|libri]]
 
+[[Obsidian Vault/home/content/library/screenshots/oggetti\|oggetti]]
+
 [[Obsidian Vault/home/content/library/screenshots/fashion\|fashion]]
 
 [[Obsidian Vault/home/content/library/screenshots/grindr\|grindr]]
@@ -17,3 +19,4 @@
 [[Obsidian Vault/home/content/library/screenshots/700x100\|700x100]]
 
 [[Obsidian Vault/home/content/library/screenshots/risorse\|risorse]]
+
