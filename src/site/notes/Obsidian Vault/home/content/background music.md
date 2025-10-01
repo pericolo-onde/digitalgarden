@@ -80,4 +80,10 @@ https://www.youtube.com/watch?v=sZNAYp5xBO4&t=339s
 https://www.youtube.com/watch?v=GsJQNwjrIA8&list=RDGsJQNwjrIA8&start_radio=1
 ![maxresdefault.png](/img/user/Obsidian%20Vault/images/maxresdefault.png)
 
+# Tomás Luis de Victoria (1548–1611) - Tenebrae Responsories
+https://www.youtube.com/watch?v=RlIvozgamEA&list=RD4tx6SHLmzrA&index=2
+![Immagine 2025-10-01 133400.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20133400.png)
 
+# Billy Joel (Hyung-ki Joo) - Fantasies & Delusions
+https://www.youtube.com/watch?v=PjR0_cQQNgo
+![71vcl34EFJL._UF894,1000_QL80-1.png](/img/user/Obsidian%20Vault/images/71vcl34EFJL._UF894,1000_QL80-1.png)
