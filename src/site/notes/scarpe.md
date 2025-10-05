@@ -13,3 +13,7 @@ https://www.instagram.com/solo_handmade_shoes/#
 ## kidslovegaite
 https://www.instagram.com/kidslovegaite/#
 ![Immagine 2025-09-14 165514.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165514.png)
+
+## bodyamplificationdevices
+https://www.instagram.com/bodyamplificationdevices/#
+![image-8 1.png](/img/user/Obsidian%20Vault/images/image-8%201.png)
