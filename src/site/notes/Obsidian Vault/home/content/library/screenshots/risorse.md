@@ -3,18 +3,21 @@
 ---
 
 
-[[copia chiavi\|copia chiavi]]
+[[Obsidian Vault/home/content/risorse/copia chiavi\|copia chiavi]]
 
-[[blender geometry nodes class\|blender geometry nodes class]]
+[[Obsidian Vault/home/content/risorse/blender geometry nodes class\|blender geometry nodes class]]
 
-[[ai scaricabile e libera\|ai scaricabile e libera]]
+[[Obsidian Vault/home/content/risorse/ai scaricabile e libera\|ai scaricabile e libera]]
 
-[[suoni\|suoni]]
+[[Obsidian Vault/home/content/risorse/suoni\|suoni]]
 
-[[paper toys\|paper toys]]
+[[Obsidian Vault/home/content/risorse/paper toys\|paper toys]]
 
-[[stock images\|stock images]]
+[[Obsidian Vault/home/content/risorse/stock images\|stock images]]
 
+[[Obsidian Vault/home/content/risorse/cartamodelli\|cartamodelli]]
 
+[[Obsidian Vault/home/content/risorse/magazines\|magazines]]
 
-![IMG_1390.png](/img/user/Obsidian%20Vault/images/IMG_1390.png)![IMG_2378.png](/img/user/Obsidian%20Vault/images/IMG_2378.png)![IMG_0214.png](/img/user/Obsidian%20Vault/images/IMG_0214.png)
+[[Obsidian Vault/home/content/risorse/Prompt Liberator\|Prompt Liberator]]
+

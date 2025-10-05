@@ -105,4 +105,4 @@ https://www.instagram.com/seeface1#
 
 ## superevilmegaglobalcorp
 https://www.instagram.com/superevilmegaglobalcorp/#
-![Immagine 2025-10-05 161952.png](/img/user/Immagine%202025-10-05%20161952.png)
+![Immagine 2025-10-05 161952.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20161952.png)

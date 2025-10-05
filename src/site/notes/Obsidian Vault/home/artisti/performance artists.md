@@ -55,3 +55,6 @@ https://www.instagram.com/wetink.ensemble/#
 https://www.youtube.com/watch?v=hVWHGx-LRL4
 ![kate-soper-only-the-words-themse.png](/img/user/Obsidian%20Vault/images/kate-soper-only-the-words-themse.png)
 
+## ahhh__asmr
+https://www.instagram.com/ahhh__asmr#
+![Immagine 2025-10-05 161848.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20161848.png)

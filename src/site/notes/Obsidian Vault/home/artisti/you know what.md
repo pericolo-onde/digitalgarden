@@ -157,4 +157,6 @@ https://www.instagram.com/little_toreabdl/#
 https://www.instagram.com/seoncruzlprd/#
 ![beat agyuhi.png](/img/user/Obsidian%20Vault/images/beat%20agyuhi.png)
 
-
+## plazntzaley
+https://www.instagram.com/plazntzaley#
+![Immagine 2025-10-05 162047.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20162047.png)

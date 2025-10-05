@@ -162,4 +162,4 @@ https://www.instagram.com/kanemaki_yoshitoshi#
 
 # Joseph Choma
 https://www.instagram.com/josephchomadesign
-![image.png](/img/user/image.png)
+![Immagine 2025-10-05 162254.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20162254.png)

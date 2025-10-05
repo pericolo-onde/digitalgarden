@@ -11,6 +11,10 @@ https://www.instagram.com/been_shill/#
 https://www.instagram.com/mashiiiine#
 ![Immagine 2025-10-01 235040.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20235040.png)
 
+## ychnjung
+https://www.instagram.com/ychnjung#
+![Immagine 2025-10-05 161153.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20161153.png)
+
 ## craigboagey
 https://www.instagram.com/craigboagey/#A
 ![Immagine 2025-09-15 221529.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20221529.png)
@@ -136,3 +140,6 @@ https://www.instagram.com/bigfatkittykittycat?igsh=ODdqeGNjMXdsdW5w#
 https://www.instagram.com/davorgromilovic/#
 ![Immagine 2025-10-01 235546-1.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20235546-1.png)
 
+## tritticoblu
+https://www.instagram.com/tritticoblu#
+![Immagine 2025-10-05 161554.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20161554.png)
