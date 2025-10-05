@@ -5,3 +5,11 @@
 # Rena Jewelry
 https://www.renajewelry.com/product-page/bouquet-brooch
 ![1879d9_57144e7a79aa4175b6216a0ac.png](/img/user/Obsidian%20Vault/images/1879d9_57144e7a79aa4175b6216a0ac.png)
+
+## zwyrtech
+https://www.instagram.com/zwyrtech/#
+![Immagine 2025-09-15 190829.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20190829.png)
+
+## jeanfrancoismimilla
+https://www.instagram.com/jeanfrancoismimilla/#
+![Immagine 2025-09-15 225115.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20225115.png)
