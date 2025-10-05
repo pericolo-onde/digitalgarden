@@ -50,4 +50,8 @@ https://www.instagram.com/francesconapoli92/#
 https://www.instagram.com/alittleclownnamedfergus?igsh=aXJ6cm1mNnlrNGN3#
 ![clown suis222aaa.png](/img/user/Obsidian%20Vault/images/clown%20suis222aaa.png)
 
+## wetink.ensemble
+https://www.instagram.com/wetink.ensemble/#
+https://www.youtube.com/watch?v=hVWHGx-LRL4
+![kate-soper-only-the-words-themse.png](/img/user/Obsidian%20Vault/images/kate-soper-only-the-words-themse.png)
 

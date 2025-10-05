@@ -84,6 +84,10 @@ https://www.instagram.com/shampoooty/#
 https://www.instagram.com/pietrospirito/#
 ![image-7 1.png](/img/user/Obsidian%20Vault/images/image-7%201.png)
 
+## eniwamura
+https://www.instagram.com/eniwamura#
+![Immagine 2025-10-01 234319.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20234319.png)
+
 ## johnsleepymoran
 https://www.instagram.com/johnsleepymoran/#
 ![Immagine 2025-09-15 204411.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204411.png)
@@ -150,5 +154,8 @@ https://www.instagram.com/aaronvartiainen0/#
 
 ## kevinfrancisgraystudio
 https://www.instagram.com/kevinfrancisgraystudio/#
-![Immagine 2025-10-01 233716.png](/img/user/Immagine%202025-10-01%20233716.png)
+![Immagine 2025-10-01 233716.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20233716.png)
 
+## kanemaki_yoshitoshi
+https://www.instagram.com/kanemaki_yoshitoshi#
+![Immagine 2025-10-01 234941.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20234941.png)

@@ -8,7 +8,7 @@
 
 [[Obsidian Vault/home/artisti/archivists\|archivists]]
 
-[[artigiani\|artigiani]]
+[[Obsidian Vault/home/artisti/artigiani\|artigiani]]
 
 [[Obsidian Vault/home/artisti/fashion workers\|fashion workers]]
 

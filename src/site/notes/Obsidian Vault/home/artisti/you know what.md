@@ -78,6 +78,10 @@ https://www.instagram.com/nikkothemutt1/#
 https://www.instagram.com/furrjoi001/#
 ![image-25.png](/img/user/Obsidian%20Vault/images/image-25.png)
 
+## g_pawz66
+https://www.instagram.com/g_pawz66#
+![Immagine 2025-10-01 234824.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20234824.png)
+
 ## rubberdragonch
 https://www.instagram.com/rubberdragonch/#
 ![rubber.png](/img/user/Obsidian%20Vault/images/rubber.png)

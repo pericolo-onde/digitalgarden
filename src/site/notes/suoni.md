@@ -4,5 +4,4 @@
 
 # musica scrittura 
 https://typatone.com/
-![image.png](/img/user/image.png)
-
+![Immagine 2025-10-05 155518.png](/img/user/Immagine%202025-10-05%20155518.png)
