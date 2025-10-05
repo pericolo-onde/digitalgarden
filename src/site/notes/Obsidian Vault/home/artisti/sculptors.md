@@ -159,3 +159,7 @@ https://www.instagram.com/kevinfrancisgraystudio/#
 ## kanemaki_yoshitoshi
 https://www.instagram.com/kanemaki_yoshitoshi#
 ![Immagine 2025-10-01 234941.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20234941.png)
+
+# Joseph Choma
+https://www.instagram.com/josephchomadesign
+![image.png](/img/user/image.png)
