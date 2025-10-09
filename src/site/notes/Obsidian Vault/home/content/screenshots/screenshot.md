@@ -1,0 +1,24 @@
+---
+{"dg-publish":true,"permalink":"/obsidian-vault/home/content/screenshots/screenshot/"}
+---
+
+[[Obsidian Vault/home/content/screenshots/musica\|musica]]
+
+[[Obsidian Vault/home/content/screenshots/libri\|libri]]
+
+[[Obsidian Vault/home/content/screenshots/oggetti\|oggetti]]
+
+[[Obsidian Vault/home/content/screenshots/fashion\|fashion]]
+
+[[Obsidian Vault/home/content/screenshots/grindr\|grindr]]
+
+[[Obsidian Vault/home/content/screenshots/serie e documentari\|serie e documentari]]
+
+[[Obsidian Vault/home/content/screenshots/downhill2k01\|downhill2k01]]
+
+[[Obsidian Vault/home/content/screenshots/700x100\|700x100]]
+
+[[Obsidian Vault/home/content/risorse/risorse\|risorse]]
+
+[[Obsidian Vault/home/content/screenshots/videogames\|videogames]]
+
