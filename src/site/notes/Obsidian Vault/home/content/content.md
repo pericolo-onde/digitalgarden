@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/content/musei/musei\|musei]]
 
-
+[[Obsidian Vault/home/content/risorse/risorse\|risorse]]
 
 [[Obsidian Vault/home/content/screenshots/screenshot\|screenshot]]
 
