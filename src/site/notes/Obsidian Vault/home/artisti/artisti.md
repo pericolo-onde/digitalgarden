@@ -10,11 +10,15 @@
 
 [[Obsidian Vault/home/artisti/artigiani\|artigiani]]
 
-[[Obsidian Vault/home/artisti/fashion workers\|fashion workers]]
+[[Obsidian Vault/home/artisti/fashion workers/fashion workers\|fashion workers]]
 
 [[Obsidian Vault/home/artisti/favorite artists\|favorite artists]]
 
+[[Obsidian Vault/home/artisti/fotografi\|fotografi]]
+
 [[Obsidian Vault/home/artisti/furniture\|furniture]]
+
+[[Obsidian Vault/home/artisti/gioielleri\|gioielleri]]
 
 [[Obsidian Vault/home/artisti/memer\|memer]]
 
