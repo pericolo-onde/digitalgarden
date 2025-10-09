@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/camicie\|camicie]]
 
-[[scarpe\|scarpe]]
+[[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
 
 ## keikagami_
