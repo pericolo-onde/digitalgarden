@@ -18,7 +18,5 @@
 
 [[Obsidian Vault/home/content/screenshots/700x100\|700x100]]
 
-[[Obsidian Vault/home/content/risorse/risorse\|risorse]]
-
 [[Obsidian Vault/home/content/screenshots/videogames\|videogames]]
 
