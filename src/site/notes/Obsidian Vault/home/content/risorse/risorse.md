@@ -22,7 +22,7 @@
 
 [[Obsidian Vault/home/content/risorse/Prompt Liberator\|Prompt Liberator]]
 
-[[RoboBraile\|RoboBraile]]
+[[Obsidian Vault/home/content/risorse/RoboBraile\|RoboBraile]]
 
 [[Obsidian Vault/home/content/risorse/trasferimento file\|trasferimento file]]
 
