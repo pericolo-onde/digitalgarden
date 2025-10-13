@@ -13,14 +13,13 @@
 
 [[Obsidian Vault/images/Cenni su Champagne\|Cenni su Champagne]] 
 
-[[Obsidian Vault/home/content/library/Santi\|Santi]]
-
-[[Obsidian Vault/home/content/library/screenshots/screenshot\|screenshot]]
-
-[[Obsidian Vault/home/content/library/popx\|popx]]
+[[Obsidian Vault/home/content/library/Santi e miti\|Santi e miti]]
 
 [[Obsidian Vault/home/content/library/La pianificazione urbana e regionale\|La pianificazione urbana e regionale]]
 
-[[Obsidian Vault/home/content/library/lampade\|lampade]]
+[[Obsidian Vault/home/content/library/Il castello interiore\|Il castello interiore]]
+
+[[Obsidian Vault/home/content/screenshots/videogames\|videogames]]
+
 
 
