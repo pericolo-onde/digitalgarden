@@ -10,7 +10,7 @@
 
 
 
-[![tappeto compresso.png](/img/user/tappeto%20compresso.png)](https://pericoloonde.xyz/obsidian-vault/home/projects/project/)
+[![tappeto compresso.png](/img/user/Obsidian%20Vault/images/tappeto%20compresso.png)](https://pericoloonde.xyz/obsidian-vault/home/projects/project/)
 
 
 
