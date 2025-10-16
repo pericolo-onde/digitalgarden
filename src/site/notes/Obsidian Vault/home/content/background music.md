@@ -87,3 +87,12 @@ https://www.youtube.com/watch?v=RlIvozgamEA&list=RD4tx6SHLmzrA&index=2
 # Billy Joel (Hyung-ki Joo) - Fantasies & Delusions
 https://www.youtube.com/watch?v=PjR0_cQQNgo
 ![71vcl34EFJL._UF894,1000_QL80-1.png](/img/user/Obsidian%20Vault/images/71vcl34EFJL._UF894,1000_QL80-1.png)
+
+# 들어본 적 없는 왈츠 모음집 (Una raccolta di valzer di cui non hai mai sentito parlare)
+https://www.youtube.com/watch?v=qP0dSxLOTEc&list=RDqP0dSxLOTEc&start_radio=1
+![723a6a_6f87f0bf99f2423f88db7f8eb-1.png](/img/user/Obsidian%20Vault/images/723a6a_6f87f0bf99f2423f88db7f8eb-1.png)
+
+# Music for 18 Musicians
+https://www.youtube.com/watch?v=1oOmUi4HGt0&list=RD1oOmUi4HGt0&start_radio=1
+![91CtJy4tz4L._UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/91CtJy4tz4L._UF1000,1000_QL80.png)
+
