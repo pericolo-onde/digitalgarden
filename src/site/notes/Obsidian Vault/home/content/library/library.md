@@ -19,7 +19,7 @@
 
 [[Obsidian Vault/home/content/library/Il castello interiore\|Il castello interiore]]
 
-[[Obsidian Vault/home/content/screenshots/videogames\|videogames]]
+
 
 
 

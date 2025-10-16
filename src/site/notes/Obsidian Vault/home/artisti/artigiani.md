@@ -17,7 +17,7 @@ https://www.instagram.com/solandme_#
 
 ## lunadendron
 https://www.instagram.com/lunadendron#
-![Immagine 2025-10-09 221805.png](/img/user/Immagine%202025-10-09%20221805.png)
+![Immagine 2025-10-09 221805.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-09%20221805.png)
 
 # Stamperia Pascucci
 https://www.pascucci1826.com/
