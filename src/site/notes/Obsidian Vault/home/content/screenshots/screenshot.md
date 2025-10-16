@@ -10,7 +10,7 @@
 
 [[Obsidian Vault/home/content/screenshots/fashion\|fashion]]
 
-
+[[Obsidian Vault/home/content/screenshots/grindr\|grindr]]
 
 [[Obsidian Vault/home/content/screenshots/serie e documentari\|serie e documentari]]
 
