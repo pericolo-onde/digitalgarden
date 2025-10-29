@@ -150,9 +150,9 @@ https://www.instagram.com/tritticoblu#
 
 ## sound_is_space
 https://www.instagram.com/sound_is_space?igsh=ajZ6aTlhNGNuYmt3#
-![Immagine 2025-10-30 004037.png](/img/user/Immagine%202025-10-30%20004037.png)
+![Immagine 2025-10-30 004037.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20004037.png)
 
 ## w4lkingfish
 https://www.instagram.com/w4lkingfish?igsh=YjhhczZldnlhaXhk#
-![Immagine 2025-10-30 004952.png](/img/user/Immagine%202025-10-30%20004952.png)
+![Immagine 2025-10-30 004952.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20004952.png)
 

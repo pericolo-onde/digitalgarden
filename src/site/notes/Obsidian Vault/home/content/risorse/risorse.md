@@ -14,6 +14,8 @@
 
 [[Obsidian Vault/home/content/risorse/paper toys\|paper toys]]
 
+[[Obsidian Vault/home/content/risorse/palette generator\|palette generator]]
+
 [[Obsidian Vault/home/content/risorse/stock images\|stock images]]
 
 [[Obsidian Vault/home/content/risorse/cartamodelli\|cartamodelli]]

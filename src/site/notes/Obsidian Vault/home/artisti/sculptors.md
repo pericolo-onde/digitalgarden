@@ -166,4 +166,4 @@ https://www.instagram.com/josephchomadesign
 
 ## combo.toys
 https://www.instagram.com/combo.toys?igsh=MTFlcnFwNGh5Y2poaw%3D%3D#
-![Immagine 2025-10-30 003851.png](/img/user/Immagine%202025-10-30%20003851.png)
+![Immagine 2025-10-30 003851.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20003851.png)
