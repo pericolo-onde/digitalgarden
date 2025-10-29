@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/content/"}
 ---
 
+[[Obsidian Vault/home/content/da visitare\|da visitare]]
+
 [[Obsidian Vault/home/content/library/library\|library]]
 
 [[Obsidian Vault/home/content/musei/musei\|musei]]
@@ -16,6 +18,5 @@
 
 [[Obsidian Vault/home/digital garden\|digital garden]]
 
-[[Obsidian Vault/home/content/da visitare\|da visitare]]
 
 
