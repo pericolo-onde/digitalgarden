@@ -163,3 +163,7 @@ https://www.instagram.com/kanemaki_yoshitoshi#
 # Joseph Choma
 https://www.instagram.com/josephchomadesign
 ![Immagine 2025-10-05 162254.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20162254.png)
+
+## combo.toys
+https://www.instagram.com/combo.toys?igsh=MTFlcnFwNGh5Y2poaw%3D%3D#
+![Immagine 2025-10-30 003851.png](/img/user/Immagine%202025-10-30%20003851.png)
