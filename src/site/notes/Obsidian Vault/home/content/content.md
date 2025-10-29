@@ -16,3 +16,6 @@
 
 [[Obsidian Vault/home/digital garden\|digital garden]]
 
+[[Obsidian Vault/home/content/da visitare\|da visitare]]
+
+
