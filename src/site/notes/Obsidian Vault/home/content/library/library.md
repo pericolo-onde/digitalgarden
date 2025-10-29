@@ -7,6 +7,8 @@
 
 [[Obsidian Vault/home/content/library/Édouard-Henri Avril\|Édouard-Henri Avril]]
 
+[[Obsidian Vault/home/content/library/human design chart\|human design chart]]
+
 [[Obsidian Vault/home/content/library/Bestiary\|Bestiary]]
 
 [[Obsidian Vault/home/content/library/Recueil de cent estampes representant differentes nations du Levant\|Recueil de cent estampes representant differentes nations du Levant]]
@@ -18,6 +20,8 @@
 [[Obsidian Vault/home/content/library/La pianificazione urbana e regionale\|La pianificazione urbana e regionale]]
 
 [[Obsidian Vault/home/content/library/Il castello interiore\|Il castello interiore]]
+
+
 
 
 
