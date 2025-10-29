@@ -10,3 +10,7 @@ Each center reflects a domain of human experience, and its functioning varies in
 
 ![alessandro_18_06_2003_13_00_humdes.com.png](/img/user/Obsidian%20Vault/images/alessandro_18_06_2003_13_00_humdes.com.png)
 ![alessandro_hologenetic_18_06_2003_13_00_humdes.com.png](/img/user/Obsidian%20Vault/images/alessandro_hologenetic_18_06_2003_13_00_humdes.com.png)![alessandro_transit_composite_18_06_2003_13_00_humdes.com.png](/img/user/Obsidian%20Vault/images/alessandro_transit_composite_18_06_2003_13_00_humdes.com.png)![alessandro_transit_18_06_2003_13_00_humdes.com.png](/img/user/Obsidian%20Vault/images/alessandro_transit_18_06_2003_13_00_humdes.com.png)
+
+https://www.instagram.com/reikimarco/
+https://humandesignitalia.it/guarda-la-tua-rave-chart/
+https://www.humdes.com/en/ravechart/
