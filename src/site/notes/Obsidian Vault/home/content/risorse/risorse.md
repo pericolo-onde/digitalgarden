@@ -22,8 +22,6 @@
 
 [[Obsidian Vault/home/content/risorse/cartamodelli\|cartamodelli]]
 
-[[Obsidian Vault/home/content/risorse/magazines\|magazines]]
-
 [[Obsidian Vault/home/content/risorse/Prompt Liberator\|Prompt Liberator]]
 
 [[Obsidian Vault/home/content/risorse/RoboBraile\|RoboBraile]]
