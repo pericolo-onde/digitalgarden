@@ -6,6 +6,8 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/camicie\|camicie]]
 
+[[corsetti\|corsetti]]
+
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
 
