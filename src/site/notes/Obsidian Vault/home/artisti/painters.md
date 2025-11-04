@@ -156,3 +156,6 @@ https://www.instagram.com/sound_is_space?igsh=ajZ6aTlhNGNuYmt3#
 https://www.instagram.com/w4lkingfish?igsh=YjhhczZldnlhaXhk#
 ![Immagine 2025-10-30 004952.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20004952.png)
 
+# Laurie Lipton
+https://www.laurielipton.com/series/
+![Immagine 2025-11-05 001046.png](/img/user/Immagine%202025-11-05%20001046.png)
