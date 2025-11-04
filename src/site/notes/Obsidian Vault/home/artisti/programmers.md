@@ -31,3 +31,6 @@ https://www.instagram.com/wttdotm/#
 https://www.instagram.com/sugiyamer#
 ![Immagine 2025-09-16 223505.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-16%20223505.png)
 
+# LONGPLAYER
+[Longplayer](https://longplayer.org/)
+![downloadergegveedewqwwwwq22234t5g.png](/img/user/downloadergegveedewqwwwwq22234t5g.png)
