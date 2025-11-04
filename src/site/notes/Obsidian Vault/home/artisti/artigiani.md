@@ -23,5 +23,6 @@ https://www.instagram.com/lunadendron#
 https://www.pascucci1826.com/
 ![cropped-antica_stamperia-pascucci_s.jpg](/img/user/Obsidian%20Vault/images/cropped-antica_stamperia-pascucci_s.jpg)
 
-
-
+## dogteeth.co
+https://www.instagram.com/dogteeth.co/#
+![Immagine 2025-11-04 233642.png](/img/user/Immagine%202025-11-04%20233642.png)
