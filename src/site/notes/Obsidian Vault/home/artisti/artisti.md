@@ -20,8 +20,6 @@
 
 [[Obsidian Vault/home/artisti/furniture\|furniture]]
 
-[[Obsidian Vault/home/artisti/gioielleri\|gioielleri]]
-
 [[Obsidian Vault/home/artisti/memer\|memer]]
 
 [[Obsidian Vault/home/artisti/painters\|painters]]
