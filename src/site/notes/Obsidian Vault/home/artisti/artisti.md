@@ -6,6 +6,8 @@
 
 [[Obsidian Vault/home/artisti/animator\|animator]]
 
+[[architetti\|architetti]]
+
 [[Obsidian Vault/home/artisti/archivists\|archivists]]
 
 [[Obsidian Vault/home/artisti/artigiani\|artigiani]]
