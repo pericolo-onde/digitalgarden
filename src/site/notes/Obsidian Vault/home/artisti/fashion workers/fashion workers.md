@@ -6,7 +6,9 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/camicie\|camicie]]
 
-[[corsetti\|corsetti]]
+[[cappelli\|cappelli]]
+
+[[Obsidian Vault/home/artisti/fashion workers/corsetti\|corsetti]]
 
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
@@ -73,14 +75,6 @@ https://www.instagram.com/migueladroverofficial/#
 https://www.instagram.com/skeltonjohn/#
 ![Immagine 2025-09-14 173456.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173456.png)
 
-## rachelfrosthatter
-https://www.instagram.com/rachelfrosthatter/#
-![Immagine 2025-09-15 193405.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193405.png)
-
-## thecrafty_beggars
-https://www.instagram.com/thecrafty_beggars/#
-![Immagine 2025-09-15 193447.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193447.png)
-
 ## tomaszumbras
 https://www.instagram.com/tomaszumbras/#
 ![Immagine 2025-09-15 231036.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20231036.png)
@@ -96,4 +90,8 @@ https://www.instagram.com/achillepinto/#
 ## mission.mergiela
 https://www.instagram.com/mission.mergiela/#
 ![Immagine 2025-09-15 195840.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20195840.png)
+
+## tidjjane
+https://www.instagram.com/tidjjane/#
+![Immagine 2025-11-04 233027.png](/img/user/Immagine%202025-11-04%20233027.png)
 
