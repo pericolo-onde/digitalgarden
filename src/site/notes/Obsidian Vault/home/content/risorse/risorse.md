@@ -8,6 +8,8 @@
 
 [[Obsidian Vault/home/content/risorse/copia chiavi\|copia chiavi]]
 
+[[Obsidian Vault/home/content/risorse/math theory\|math theory]]
+
 [[Obsidian Vault/home/content/risorse/blender geometry nodes class\|blender geometry nodes class]]
 
 [[Obsidian Vault/home/content/risorse/ai scaricabile e libera\|ai scaricabile e libera]]
@@ -27,6 +29,8 @@
 [[Obsidian Vault/home/content/risorse/RoboBraile\|RoboBraile]]
 
 [[Obsidian Vault/home/content/risorse/trasferimento file\|trasferimento file]]
+
+
 
 
 
