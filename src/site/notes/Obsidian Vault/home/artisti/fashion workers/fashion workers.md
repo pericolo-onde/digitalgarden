@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/camicie\|camicie]]
 
-[[cappelli\|cappelli]]
+[[Obsidian Vault/home/artisti/fashion workers/cappelli\|cappelli]]
 
 [[Obsidian Vault/home/artisti/fashion workers/corsetti\|corsetti]]
 
@@ -93,5 +93,5 @@ https://www.instagram.com/mission.mergiela/#
 
 ## tidjjane
 https://www.instagram.com/tidjjane/#
-![Immagine 2025-11-04 233027.png](/img/user/Immagine%202025-11-04%20233027.png)
+![Immagine 2025-11-04 233027.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20233027.png)
 

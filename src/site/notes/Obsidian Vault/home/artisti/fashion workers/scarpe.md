@@ -20,5 +20,5 @@ https://www.instagram.com/bodyamplificationdevices/#
 
 ## trippen.official
 https://www.instagram.com/trippen.official?igsh=MWpzbGp4cWNmZGc3ag%3D%3D#
-![Immagine 2025-11-04 233405.png](/img/user/Immagine%202025-11-04%20233405.png)
+![Immagine 2025-11-04 233405.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20233405.png)
 

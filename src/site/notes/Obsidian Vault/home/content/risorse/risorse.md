@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/risorse/risorse/"}
 ---
 
-[[archivi\|archivi]]
+[[Obsidian Vault/home/content/risorse/archivi\|archivi]]
 
 [[Obsidian Vault/home/content/risorse/scientific documents AI\|scientific documents AI]]
 
