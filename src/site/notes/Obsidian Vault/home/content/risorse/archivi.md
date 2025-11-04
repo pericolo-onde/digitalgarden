@@ -17,3 +17,8 @@ https://archive.org/details/texts
 # archive
 https://www.archivepdf.net/
 ![Immagine 2025-10-05 160920.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20160920.png)
+
+## ebanbleechairs
+https://www.instagram.com/ebanbleechairs/#
+![Immagine 2025-11-05 003434.png](/img/user/Immagine%202025-11-05%20003434.png)
+
