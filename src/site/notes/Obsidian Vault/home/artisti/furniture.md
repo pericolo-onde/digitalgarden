@@ -18,3 +18,7 @@ https://www.instagram.com/ebtd.co.uk/#
 https://www.instagram.com/mk_forms/#
 ![Immagine 2025-09-15 193550.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193550.png)
 
+## alx_lntv
+https://www.instagram.com/alx_lntv/#
+![Immagine 2025-11-05 003312.png](/img/user/Immagine%202025-11-05%20003312.png)
+
