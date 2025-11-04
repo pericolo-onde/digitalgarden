@@ -8,3 +8,8 @@ https://youtu.be/Xc7QAv9yxZQ?si=M8grwp_x5m0PCuVZ
 # Fashion Neurosis
 https://www.youtube.com/@Fashion_Neurosis/videos
 ![Fashion Neurosis.jpg](/img/user/Obsidian%20Vault/images/Fashion%20Neurosis.jpg)
+
+# Middlebrow Podcast
+https://www.youtube.com/watch?v=ViL2cTUm2ZE
+![Immagine 2025-11-04 235638.png](/img/user/Immagine%202025-11-04%20235638.png)
+
