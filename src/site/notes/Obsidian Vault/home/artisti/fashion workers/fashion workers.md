@@ -2,13 +2,15 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/fashion-workers/fashion-workers/"}
 ---
 
-[[Obsidian Vault/home/artisti/fashion workers/pantaloni\|pantaloni]]
-
 [[Obsidian Vault/home/artisti/fashion workers/camicie\|camicie]]
 
 [[Obsidian Vault/home/artisti/fashion workers/cappelli\|cappelli]]
 
 [[Obsidian Vault/home/artisti/fashion workers/corsetti\|corsetti]]
+
+[[Obsidian Vault/home/artisti/fashion workers/gioielleri\|gioielleri]]
+
+[[Obsidian Vault/home/artisti/fashion workers/pantaloni\|pantaloni]]
 
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
