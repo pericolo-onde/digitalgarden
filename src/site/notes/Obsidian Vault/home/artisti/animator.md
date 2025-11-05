@@ -98,4 +98,4 @@ https://www.instagram.com/markkandres/#
 
 # 3121534312
 https://www.youtube.com/@3121534312/videos
-![Immagine 2025-11-05 000745.png](/img/user/Immagine%202025-11-05%20000745.png)
+![Immagine 2025-11-05 000745.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20000745.png)

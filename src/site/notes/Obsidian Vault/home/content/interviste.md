@@ -11,5 +11,8 @@ https://www.youtube.com/@Fashion_Neurosis/videos
 
 # Middlebrow Podcast
 https://www.youtube.com/watch?v=ViL2cTUm2ZE
-![Immagine 2025-11-04 235638.png](/img/user/Immagine%202025-11-04%20235638.png)
+![Immagine 2025-11-04 235638.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20235638.png)
 
+# RAInchiesteTV7 1963-70: Sergio Zavoli
+https://www.raiplay.it/video/2025/05/RAInchieste-TV7-1963-70-Sergio-Zavoli-3306a945-d6ec-4dd5-b371-d1a2fad0be2c.html
+![1752050977062_9.png](/img/user/1752050977062_9.png)

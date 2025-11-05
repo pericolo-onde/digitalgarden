@@ -33,4 +33,4 @@ https://www.instagram.com/sugiyamer#
 
 # LONGPLAYER
 [Longplayer](https://longplayer.org/)
-![downloadergegveedewqwwwwq22234t5g.png](/img/user/downloadergegveedewqwwwwq22234t5g.png)
+![downloadergegveedewqwwwwq22234t5g.png](/img/user/Obsidian%20Vault/images/downloadergegveedewqwwwwq22234t5g.png)

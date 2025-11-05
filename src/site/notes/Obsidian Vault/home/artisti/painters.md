@@ -158,4 +158,8 @@ https://www.instagram.com/w4lkingfish?igsh=YjhhczZldnlhaXhk#
 
 # Laurie Lipton
 https://www.laurielipton.com/series/
-![Immagine 2025-11-05 001046.png](/img/user/Immagine%202025-11-05%20001046.png)
+![Immagine 2025-11-05 001046.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20001046.png)
+
+## marktennantart
+https://www.instagram.com/marktennantart/#
+![Immagine 2025-11-05 003646.png](/img/user/Immagine%202025-11-05%20003646.png)
