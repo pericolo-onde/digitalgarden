@@ -20,5 +20,5 @@ https://www.archivepdf.net/
 
 ## ebanbleechairs
 https://www.instagram.com/ebanbleechairs/#
-![Immagine 2025-11-05 003434.png](/img/user/Immagine%202025-11-05%20003434.png)
+![Immagine 2025-11-05 003434.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20003434.png)
 

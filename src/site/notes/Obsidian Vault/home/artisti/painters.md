@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/painters/"}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/painters/","tags":["pittori","illustratori","disegnatori","disegni"]}
 ---
 
 
@@ -162,4 +162,4 @@ https://www.laurielipton.com/series/
 
 ## marktennantart
 https://www.instagram.com/marktennantart/#
-![Immagine 2025-11-05 003646.png](/img/user/Immagine%202025-11-05%20003646.png)
+![Immagine 2025-11-05 003646.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20003646.png)

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/animator/"}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/animator/","tags":["animatori"]}
 ---
 
 

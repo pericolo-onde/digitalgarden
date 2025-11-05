@@ -20,5 +20,5 @@ https://www.instagram.com/mk_forms/#
 
 ## alx_lntv
 https://www.instagram.com/alx_lntv/#
-![Immagine 2025-11-05 003312.png](/img/user/Immagine%202025-11-05%20003312.png)
+![Immagine 2025-11-05 003312.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20003312.png)
 
