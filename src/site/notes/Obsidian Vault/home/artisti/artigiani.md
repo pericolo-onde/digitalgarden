@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/artigiani/"}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/artigiani/","tags":["artisan"]}
 ---
 
 
@@ -30,3 +30,8 @@ https://www.instagram.com/dogteeth.co/#
 ## bigaxe_tornitura
 https://www.instagram.com/bigaxe_tornitura/#
 ![image-32.png](/img/user/Obsidian%20Vault/images/image-32.png)
+
+## Emelie Weber Wade (lunadendron)
+https://www.instagram.com/lunadendron?igsh=MWNyZ3F6M3Jvd2Z4YQ%3D%3D#
+![Immagine 2025-11-07 212600sd2w3e.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20212600sd2w3e.png)
+

@@ -167,3 +167,15 @@ https://www.instagram.com/marktennantart/#
 ## paz_o_ur (Ester Pazur)
 https://www.instagram.com/paz_o_ur/#
 ![Immagine 2025-11-07 005009.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20005009.png)
+
+# Gertrude Abercrombie
+https://karmakarma.org/artists/gertrude-abercrombie/
+![wrvcewvceqcqcqqcqcqcc.png](/img/user/Obsidian%20Vault/images/wrvcewvceqcqcqqcqcqcc.png)
+
+# arnold böcklin
+https://archive.org/details/1280pxArnoldBcklinVillaByTheSeaGoogleArtProject/1047225212.jpg
+![fvewrwccacscxasasasas.png](/img/user/Obsidian%20Vault/images/fvewrwccacscxasasasas.png)
+
+## MinJeong An
+https://www.instagram.com/minjeongart/#
+![Immagine 2025-11-07 211225.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20211225.png)

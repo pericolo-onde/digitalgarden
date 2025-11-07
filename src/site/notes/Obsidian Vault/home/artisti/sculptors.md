@@ -172,3 +172,7 @@ https://www.instagram.com/josephchomadesign
 https://www.instagram.com/combo.toys?igsh=MTFlcnFwNGh5Y2poaw%3D%3D#
 ![Immagine 2025-10-30 003851.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20003851.png)
 
+## aus_alien_glass
+https://www.instagram.com/aus_alien_glass?igsh=YTkwOXR0eWU5bDVy#
+![Immagine 2025-11-07 211429SW32DQE.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20211429SW32DQE.png)
+

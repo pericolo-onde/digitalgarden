@@ -2,28 +2,22 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/library/library/"}
 ---
 
+[[Obsidian Vault/home/content/library/Bestiary\|Bestiary]]
 
-[[Obsidian Vault/home/content/library/The Anatomy of the Arteries of the Human Body\|The Anatomy of the Arteries of the Human Body]]
+[[Obsidian Vault/images/Cenni su Champagne\|Cenni su Champagne]] 
+
+[[Obsidian Vault/home/content/library/demoni\|demoni]]
 
 [[Obsidian Vault/home/content/library/Édouard-Henri Avril\|Édouard-Henri Avril]]
 
 [[Obsidian Vault/home/content/library/human design chart\|human design chart]]
 
-[[Obsidian Vault/home/content/library/Bestiary\|Bestiary]]
-
-[[Obsidian Vault/home/content/library/Recueil de cent estampes representant differentes nations du Levant\|Recueil de cent estampes representant differentes nations du Levant]]
-
-[[Obsidian Vault/images/Cenni su Champagne\|Cenni su Champagne]] 
-
-[[Obsidian Vault/home/content/library/Santi e miti\|Santi e miti]]
+[[Obsidian Vault/home/content/library/Il castello interiore\|Il castello interiore]]
 
 [[Obsidian Vault/home/content/library/La pianificazione urbana e regionale\|La pianificazione urbana e regionale]]
 
-[[Obsidian Vault/home/content/library/Il castello interiore\|Il castello interiore]]
+[[Obsidian Vault/home/content/library/Recueil de cent estampes representant differentes nations du Levant\|Recueil de cent estampes representant differentes nations du Levant]]
 
+[[Obsidian Vault/home/content/library/Santi e miti\|Santi e miti]]
 
-
-
-
-
-
+[[Obsidian Vault/home/content/library/The Anatomy of the Arteries of the Human Body\|The Anatomy of the Arteries of the Human Body]]

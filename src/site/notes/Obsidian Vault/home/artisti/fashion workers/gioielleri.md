@@ -13,3 +13,7 @@ https://www.instagram.com/zwyrtech/#
 ## jeanfrancoismimilla
 https://www.instagram.com/jeanfrancoismimilla/#
 ![Immagine 2025-09-15 225115.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20225115.png)
+
+## ursuuna.archive
+https://www.instagram.com/ursuuna.archive?igsh=MTJ0MHFvcDhmc2l5aQ%3D%3D#
+![v dsweqaKUM67565.png](/img/user/Obsidian%20Vault/images/v%20dsweqaKUM67565.png)
