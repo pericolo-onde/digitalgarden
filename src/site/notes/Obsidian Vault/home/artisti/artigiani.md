@@ -26,3 +26,7 @@ https://www.pascucci1826.com/
 ## dogteeth.co
 https://www.instagram.com/dogteeth.co/#
 ![Immagine 2025-11-04 233642.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20233642.png)
+
+## bigaxe_tornitura
+https://www.instagram.com/bigaxe_tornitura/#
+![image-32.png](/img/user/Obsidian%20Vault/images/image-32.png)

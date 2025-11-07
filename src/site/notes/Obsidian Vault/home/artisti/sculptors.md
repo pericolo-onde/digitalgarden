@@ -1,11 +1,15 @@
 ---
-{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/sculptors/"}
+{"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/sculptors/","tags":["scultori","sculture"]}
 ---
 
 
 ## arcangelosassolino
 https://www.instagram.com/arcangelosassolino/#
 ![image-15.png](/img/user/Obsidian%20Vault/images/image-15.png)
+
+## Harris Rosenblum
+https://www.instagram.com/harris.rosenblum#
+![wqxsn hxvsdvsdv qqqqqwqw-1.png](/img/user/Obsidian%20Vault/images/wqxsn%20hxvsdvsdv%20qqqqqwqw-1.png)
 
 ## donato_piccolo
 https://www.instagram.com/donato_piccolo/#
@@ -18,6 +22,10 @@ https://www.instagram.com/princemonkey/#
 ## simoncarle__
 https://www.instagram.com/simoncarle__/#
 ![Immagine 2025-09-24 171824.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-24%20171824.png)
+
+## Precious Okoyomon
+https://www.instagram.com/devilintraining_#
+![Immagine 2025-11-07 010233.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20010233.png)
 
 ## stchadsprojects
 https://www.instagram.com/stchadsprojects/#
@@ -42,10 +50,6 @@ https://www.instagram.com/wojtyl.a/#
 ## tundra_time_
 https://www.instagram.com/tundra_time_/#
 ![image-29.png](/img/user/Obsidian%20Vault/images/image-29.png)
-
-## bigaxe_tornitura
-https://www.instagram.com/bigaxe_tornitura/#
-![image-32.png](/img/user/Obsidian%20Vault/images/image-32.png)
 
 ## anthr0morph
 https://www.instagram.com/anthr0morph/#
@@ -167,3 +171,4 @@ https://www.instagram.com/josephchomadesign
 ## combo.toys
 https://www.instagram.com/combo.toys?igsh=MTFlcnFwNGh5Y2poaw%3D%3D#
 ![Immagine 2025-10-30 003851.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20003851.png)
+

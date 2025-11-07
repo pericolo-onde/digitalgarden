@@ -163,3 +163,7 @@ https://www.laurielipton.com/series/
 ## marktennantart
 https://www.instagram.com/marktennantart/#
 ![Immagine 2025-11-05 003646.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20003646.png)
+
+## paz_o_ur (Ester Pazur)
+https://www.instagram.com/paz_o_ur/#
+![Immagine 2025-11-07 005009.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20005009.png)
