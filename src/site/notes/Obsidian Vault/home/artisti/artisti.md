@@ -36,7 +36,7 @@
 
 [[Obsidian Vault/home/artisti/writers\|writers]]
 
-[[Obsidian Vault/home/artisti/you know what\|you know what]]
+[[Obsidian Vault/home/artisti/you know what/you know what\|you know what]]
 
 
 
