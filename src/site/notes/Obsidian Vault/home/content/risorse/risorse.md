@@ -28,10 +28,15 @@
 
 [[Obsidian Vault/home/content/risorse/Prompt Liberator\|Prompt Liberator]]
 
+[[Obsidian Vault/home/content/risorse/pirata\|pirata]]
+
 [[Obsidian Vault/home/content/risorse/RoboBraile\|RoboBraile]]
 
 [[Obsidian Vault/home/content/risorse/trasferimento file\|trasferimento file]]
 
+[[Obsidian Vault/home/content/risorse/imagefragmenter\|imagefragmenter]]
+
+[[Obsidian Vault/home/content/risorse/The Sound of Sorting\|The Sound of Sorting]]
 
 
 

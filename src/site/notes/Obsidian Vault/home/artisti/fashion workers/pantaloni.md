@@ -12,3 +12,7 @@ https://japaneseworkwear.com/
 # Spencers Trousers
 https://www.spencers-trousers.com/
 ![522510087_1374872980741687_21897.png](/img/user/Obsidian%20Vault/images/522510087_1374872980741687_21897.png)
+
+# strauss
+https://www.strauss.com/it/it/pantaloni-gilda/
+![Immagine 2025-11-08 22544323df45brvtnyb.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-08%2022544323df45brvtnyb.png)

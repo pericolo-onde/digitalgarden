@@ -58,3 +58,7 @@ https://www.youtube.com/watch?v=hVWHGx-LRL4
 ## ahhh__asmr
 https://www.instagram.com/ahhh__asmr#
 ![Immagine 2025-10-05 161848.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20161848.png)
+
+# Jimmie Durham
+https://www.youtube.com/watch?v=6dFd5iNBj_c
+![04_Jimmie-Durham-Smashing-2004-swdqefgrtnhjymebwqw.png](/img/user/Obsidian%20Vault/images/04_Jimmie-Durham-Smashing-2004-swdqefgrtnhjymebwqw.png)

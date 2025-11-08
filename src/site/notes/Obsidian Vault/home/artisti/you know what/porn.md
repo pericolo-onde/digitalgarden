@@ -9,3 +9,8 @@ https://www.gayforit.eu/video/1100278/Travis-BTS
 https://ita.xhamster.com/videos/the-virgin-and-the-lover-1973-us-full-movie-hd-rip-xhy5mXx
 ![Immagine 2025-11-08 001625wdqfegrhtj.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-08%20001625wdqfegrhtj.png)
 ![Immagine 2025-11-08 001715bhdgsvxz.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-08%20001715bhdgsvxz.png)
+
+# Urotsukidoji - La leggenda del Chojin
+https://archive.org/details/urotsukidoji-1-la-nascita-del-chojin/1+La+nascita+del+Chojin.avi
+![collage-from-picmyna-12-d3wef4wvbr.png](/img/user/Obsidian%20Vault/images/collage-from-picmyna-12-d3wef4wvbr.png)
+

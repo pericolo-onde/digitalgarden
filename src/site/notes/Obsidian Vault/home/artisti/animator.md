@@ -108,8 +108,12 @@ https://www.youtube.com/@prroductt
 https://www.youtube.com/@vewn/videos
 ![Immagine 2025-11-07 235122cfv bgnhm.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20235122cfv%20bgnhm.png)
 
+# nana825763 (PiroPito)
+https://www.youtube.com/@nana825763/playlists
+![Immagine 2025-11-08 223637s2wd34efv5bn6m7y btrvec.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-08%20223637s2wd34efv5bn6m7y%20btrvec.png)
 
-
-
+# AIDN
+https://aidn.jp/
+![Immagine 2025-11-08 232654gre45hjr6ekm.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-08%20232654gre45hjr6ekm.png)
 
 

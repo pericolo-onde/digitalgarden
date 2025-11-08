@@ -179,3 +179,17 @@ https://archive.org/details/1280pxArnoldBcklinVillaByTheSeaGoogleArtProject/1047
 ## MinJeong An
 https://www.instagram.com/minjeongart/#
 ![Immagine 2025-11-07 211225.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20211225.png)
+
+# Louis Fratino
+https://www.smjny.com/louis-fratino
+![Kissing my foot Louis Fratino.jpg](/img/user/Obsidian%20Vault/images/Kissing%20my%20foot%20Louis%20Fratino.jpg)
+
+# Gerolamo Induno
+https://soloarte.atelierdesarts.com/artisti/old/i/induno-gerolamo.html
+![patty pravo tutt'al più (3).png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(3).png)
+
+# Fernando Botero
+https://www.wikiart.org/en/fernando-botero
+![20130430-Botero-Abu-Ghraib-4ewrbtnmytnbwwbvw2ewv.png](/img/user/Obsidian%20Vault/images/20130430-Botero-Abu-Ghraib-4ewrbtnmytnbwwbvw2ewv.png)
+
+

@@ -176,3 +176,7 @@ https://www.instagram.com/combo.toys?igsh=MTFlcnFwNGh5Y2poaw%3D%3D#
 https://www.instagram.com/aus_alien_glass?igsh=YTkwOXR0eWU5bDVy#
 ![Immagine 2025-11-07 211429SW32DQE.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20211429SW32DQE.png)
 
+# Patrick Tuttofuoco
+https://www.instagram.com/patricktuttofuoco/?hl=it
+![3cdgyucx3bu8yc2eyu23dgyuqcfg.png](/img/user/Obsidian%20Vault/images/3cdgyucx3bu8yc2eyu23dgyuqcfg.png)
+

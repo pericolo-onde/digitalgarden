@@ -21,3 +21,5 @@
 [[Obsidian Vault/home/content/library/Santi e miti\|Santi e miti]]
 
 [[Obsidian Vault/home/content/library/The Anatomy of the Arteries of the Human Body\|The Anatomy of the Arteries of the Human Body]]
+
+[[Obsidian Vault/home/content/library/weird art, mixed media & unrestricted access to the internet/weird art, mixed media & unrestricted access to the internet\|weird art, mixed media & unrestricted access to the internet]]
