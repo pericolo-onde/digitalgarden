@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/risorse/risorse/"}
 ---
 
+[[Obsidian Vault/home/content/risorse/3D nature data\|3D nature data]]
+
 [[Obsidian Vault/home/content/risorse/archivi\|archivi]]
 
 [[Obsidian Vault/home/content/risorse/scientific documents AI\|scientific documents AI]]
@@ -29,6 +31,8 @@
 [[Obsidian Vault/home/content/risorse/RoboBraile\|RoboBraile]]
 
 [[Obsidian Vault/home/content/risorse/trasferimento file\|trasferimento file]]
+
+
 
 
 

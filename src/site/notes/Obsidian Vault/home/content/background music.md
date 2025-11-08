@@ -97,6 +97,7 @@ https://www.youtube.com/watch?v=1oOmUi4HGt0&list=RD1oOmUi4HGt0&start_radio=1
 ![91CtJy4tz4L._UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/91CtJy4tz4L._UF1000,1000_QL80.png)
 ![51xytzzdDKL._UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/51xytzzdDKL._UF1000,1000_QL80.png)
 ![patty pravo tutt'al più.png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9.png)
+![Immagine 2025-11-07 234112wqsdef4rg5th6j7k8l.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20234112wqsdef4rg5th6j7k8l.png)
 
 
 

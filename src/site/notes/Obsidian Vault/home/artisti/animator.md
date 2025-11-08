@@ -99,3 +99,17 @@ https://www.instagram.com/markkandres/#
 # 3121534312
 https://www.youtube.com/@3121534312/videos
 ![Immagine 2025-11-05 000745.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20000745.png)
+
+# Product
+https://www.youtube.com/@prroductt
+![Immagine 2025-11-07 2327212fe43g5h6nmj7k.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%202327212fe43g5h6nmj7k.png)
+
+# vewn
+https://www.youtube.com/@vewn/videos
+![Immagine 2025-11-07 235122cfv bgnhm.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20235122cfv%20bgnhm.png)
+
+
+
+
+
+

@@ -7,6 +7,13 @@
 ![91imFS80fHL._UF1000,1000_QL80_.jpg](/img/user/Obsidian%20Vault/images/91imFS80fHL._UF1000,1000_QL80_.jpg)
 ![9138gIyFwnL._AC_UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/9138gIyFwnL._AC_UF1000,1000_QL80.png)![Biblomania_COVER_REGULAR-shop.png](/img/user/Obsidian%20Vault/images/Biblomania_COVER_REGULAR-shop.png)
 ![fontamara-ignazio-silone-coperti.png](/img/user/Obsidian%20Vault/images/fontamara-ignazio-silone-coperti.png)![9788845930379_0_0_0_0_0132435WRTGFC3.png](/img/user/Obsidian%20Vault/images/9788845930379_0_0_0_0_0132435WRTGFC3.png)![9788845918643_0_0_536_0_75.png](/img/user/Obsidian%20Vault/images/9788845918643_0_0_536_0_75.png)
+![9788880562238.png](/img/user/Obsidian%20Vault/images/9788880562238.png)
+![Immagine 2025-11-07 224750.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20224750.png)
+![the-monster-trilogy-by-kasing-lu.png](/img/user/Obsidian%20Vault/images/the-monster-trilogy-by-kasing-lu.png)
+![A10tZhIMRrL._AC_UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/A10tZhIMRrL._AC_UF1000,1000_QL80.png)
+
+
+
 
 
 

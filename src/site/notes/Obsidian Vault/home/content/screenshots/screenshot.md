@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/screenshots/screenshot/"}
 ---
 
+[[Obsidian Vault/home/content/screenshots/documentrari\|documentrari]]
+
 [[Obsidian Vault/home/content/screenshots/musica\|musica]]
 
 [[Obsidian Vault/home/content/screenshots/libri\|libri]]
@@ -14,7 +16,7 @@
 
 [[Obsidian Vault/home/content/screenshots/grindr\|grindr]]
 
-[[Obsidian Vault/home/content/screenshots/serie e documentari\|serie e documentari]]
+[[Obsidian Vault/home/content/screenshots/serie\|serie]]
 
 [[Obsidian Vault/home/content/screenshots/downhill2k01\|downhill2k01]]
 

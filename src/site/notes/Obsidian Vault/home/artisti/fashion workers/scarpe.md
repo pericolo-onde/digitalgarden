@@ -22,3 +22,7 @@ https://www.instagram.com/bodyamplificationdevices/#
 https://www.instagram.com/trippen.official?igsh=MWpzbGp4cWNmZGc3ag%3D%3D#
 ![Immagine 2025-11-04 233405.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20233405.png)
 
+# grenson
+https://www.grenson.com/ymc-x-grenson-mens-oxford-shoes-in-black-leather/
+![114920_ymc_topsole_print__92293.png](/img/user/Obsidian%20Vault/images/114920_ymc_topsole_print__92293.png)
+
