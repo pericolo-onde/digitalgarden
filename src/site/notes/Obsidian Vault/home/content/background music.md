@@ -119,3 +119,7 @@ https://youtu.be/dSwHkyCGGOA?si=77vDuCdNo-M27IEB
 # Super Salsa 1978 Puerto Rico - Hector Lavoe, Rueben Blades, Willy Colon, Celia Cruz, Yomo Toro
 https://www.youtube.com/watch?v=59q3mL3VEGY&list=RD59q3mL3VEGY&start_radio=1
 ![Immagine 2025-11-10 141632ft67erwhsux9.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-10%20141632ft67erwhsux9.png)
+
+# Kate Bush - Wuthering Heights
+https://www.youtube.com/watch?v=-1pMMIe4hb4
+![Immagine 2025-11-10 233317f3rght65yjhtbgefwvdqs.png](/img/user/Immagine%202025-11-10%20233317f3rght65yjhtbgefwvdqs.png)

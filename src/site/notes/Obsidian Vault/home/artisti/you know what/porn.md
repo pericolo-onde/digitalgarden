@@ -14,3 +14,10 @@ https://ita.xhamster.com/videos/the-virgin-and-the-lover-1973-us-full-movie-hd-r
 https://archive.org/details/urotsukidoji-1-la-nascita-del-chojin/1+La+nascita+del+Chojin.avi
 ![collage-from-picmyna-12-d3wef4wvbr.png](/img/user/Obsidian%20Vault/images/collage-from-picmyna-12-d3wef4wvbr.png)
 
+# GOBLIN CAVE 1 2 & 3
+https://gay0day.com/it/videos/190803/goblin-cave-1-2-3/
+![Immagine 2025-11-10 232634dwfegrhtj.png](/img/user/Immagine%202025-11-10%20232634dwfegrhtj.png)![Immagine 2025-11-10 232538tycdxxrcvu.png](/img/user/Immagine%202025-11-10%20232538tycdxxrcvu.png)
+
+# 8mm John Holmes
+https://ita.xhamster.com/videos/8mm-john-holmes-10583398
+![Immagine 2025-11-11 00332021wd3fe4hty.png](/img/user/Immagine%202025-11-11%2000332021wd3fe4hty.png)
