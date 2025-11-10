@@ -95,11 +95,27 @@ https://www.youtube.com/watch?v=qP0dSxLOTEc&list=RDqP0dSxLOTEc&start_radio=1
 # Music for 18 Musicians
 https://www.youtube.com/watch?v=1oOmUi4HGt0&list=RD1oOmUi4HGt0&start_radio=1
 ![91CtJy4tz4L._UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/91CtJy4tz4L._UF1000,1000_QL80.png)
+
+# Sora - Re.sort (2003)
+https://youtu.be/6mPJ2xnhqPM?si=ipSlhPZtCNuWWVlY
 ![51xytzzdDKL._UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/51xytzzdDKL._UF1000,1000_QL80.png)
+
+# Patty Pravo - Tutt'al più (Canzonissima 1970)
+https://youtu.be/gO93yKs7HFg?si=QFwqhMaiY1v9LYvQ
 ![patty pravo tutt'al più.png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9.png)
-![Immagine 2025-11-07 234112wqsdef4rg5th6j7k8l.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20234112wqsdef4rg5th6j7k8l.png)
+
+# Mega Man Legends 2 OST
+https://youtu.be/v0MbYHqnWiY?si=4yQlyBiWilm8ZtVl
+![mega-man-legends-2-button-164128wqfeg4rhtj6hgefdeqf.png](/img/user/Obsidian%20Vault/images/mega-man-legends-2-button-164128wqfeg4rhtj6hgefdeqf.png)
+
+# Cyberfit - Pojo Pojo
+https://youtu.be/r7V4Tg5ytLA?si=h-M0f86yz2T5StKQ
 ![maxresdefaultwqfegvbrhtnjmyk.png](/img/user/Obsidian%20Vault/images/maxresdefaultwqfegvbrhtnjmyk.png)
+
+# Yoshihiro Kanno - 天使のたまご 音楽編 ｢水に棲む｣ (O.S.T) (1985)
+https://youtu.be/dSwHkyCGGOA?si=77vDuCdNo-M27IEB
 ![VREQGYBUCEWUHBCWE YBG-1.png](/img/user/Obsidian%20Vault/images/VREQGYBUCEWUHBCWE%20YBG-1.png)
 
-
-
+# Super Salsa 1978 Puerto Rico - Hector Lavoe, Rueben Blades, Willy Colon, Celia Cruz, Yomo Toro
+https://www.youtube.com/watch?v=59q3mL3VEGY&list=RD59q3mL3VEGY&start_radio=1
+![Immagine 2025-11-10 141632ft67erwhsux9.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-10%20141632ft67erwhsux9.png)
