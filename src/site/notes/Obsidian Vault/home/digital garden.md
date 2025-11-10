@@ -2,9 +2,6 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/digital-garden/","tags":["gardenEntry"]}
 ---
 
-
-
-
 [![scatoloni.png](/img/user/Obsidian%20Vault/images/scatoloni.png)](https://pericoloonde.xyz/obsidian-vault/home/content/content/)
 
 
