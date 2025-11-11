@@ -122,4 +122,4 @@ https://www.youtube.com/watch?v=59q3mL3VEGY&list=RD59q3mL3VEGY&start_radio=1
 
 # Kate Bush - Wuthering Heights
 https://www.youtube.com/watch?v=-1pMMIe4hb4
-![Immagine 2025-11-10 233317f3rght65yjhtbgefwvdqs.png](/img/user/Immagine%202025-11-10%20233317f3rght65yjhtbgefwvdqs.png)
+![Immagine 2025-11-10 233317f3rght65yjhtbgefwvdqs.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-10%20233317f3rght65yjhtbgefwvdqs.png)
