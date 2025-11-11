@@ -192,4 +192,14 @@ https://soloarte.atelierdesarts.com/artisti/old/i/induno-gerolamo.html
 https://www.wikiart.org/en/fernando-botero
 ![20130430-Botero-Abu-Ghraib-4ewrbtnmytnbwwbvw2ewv.png](/img/user/Obsidian%20Vault/images/20130430-Botero-Abu-Ghraib-4ewrbtnmytnbwwbvw2ewv.png)
 
+# Michaël Borremans
+https://www.instagram.com/borremansart/
+![Immagine 2025-11-11 2308572edw3rgrftbng.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-11%202308572edw3rgrftbng.png)
 
+# Osmar Schindler
+https://www.artnet.com/artists/osmar-schindler/3
+![frdt4egybszunqms2f32i4v.png](/img/user/Obsidian%20Vault/images/frdt4egybszunqms2f32i4v.png)
+
+# Rafe15
+https://www.deviantart.com/rafe15
+![ygfecrxchsudwi wucbnpubdi w.png](/img/user/Obsidian%20Vault/images/ygfecrxchsudwi%20wucbnpubdi%20w.png)

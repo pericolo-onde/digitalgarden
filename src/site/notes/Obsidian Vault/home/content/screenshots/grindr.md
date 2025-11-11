@@ -3,6 +3,7 @@
 ---
 
 ![IMG_5698.jpeg](/img/user/Obsidian%20Vault/images/IMG_5698.jpeg)
+![Immagine 2024-12-04 161902.png](/img/user/Obsidian%20Vault/images/Immagine%202024-12-04%20161902.png)
 ![IMG_9156.jpeg](/img/user/Obsidian%20Vault/images/IMG_9156.jpeg)
 ![IMG_6655.jpeg](/img/user/Obsidian%20Vault/images/IMG_6655.jpeg)
 ![IMG_6755.jpeg](/img/user/Obsidian%20Vault/images/IMG_6755.jpeg)
