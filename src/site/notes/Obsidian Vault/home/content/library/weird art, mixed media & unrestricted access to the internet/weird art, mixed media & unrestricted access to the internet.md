@@ -9,7 +9,7 @@ https://youtu.be/d_n_gmINZTI?si=QXJ2wODMVygBjvm7
 
 [[Obsidian Vault/home/content/library/weird art, mixed media & unrestricted access to the internet/Creepypasta\|Creepypasta]]
 
-[[Obsidian Vault/home/content/screenshots/films\|films]]
+[[Obsidian Vault/home/content/screenshots/film/films\|films]]
 
 [[Obsidian Vault/home/content/library/weird art, mixed media & unrestricted access to the internet/Installazioni Artistiche-Opere d'Arte\|Installazioni Artistiche-Opere d'Arte]]
 

@@ -35,3 +35,8 @@ https://www.instagram.com/bigaxe_tornitura/#
 https://www.instagram.com/lunadendron?igsh=MWNyZ3F6M3Jvd2Z4YQ%3D%3D#
 ![Immagine 2025-11-07 212600sd2w3e.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20212600sd2w3e.png)
 
+## _lavec
+https://www.instagram.com/_lavec/#
+![Immagine 2025-11-12 224052.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20224052.png)
+
+

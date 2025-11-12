@@ -16,3 +16,7 @@ https://www.youtube.com/watch?v=ViL2cTUm2ZE
 # RAInchiesteTV7 1963-70: Sergio Zavoli
 https://www.raiplay.it/video/2025/05/RAInchieste-TV7-1963-70-Sergio-Zavoli-3306a945-d6ec-4dd5-b371-d1a2fad0be2c.html
 ![1752050977062_9.png](/img/user/Obsidian%20Vault/images/1752050977062_9.png)
+
+# Joshua Citarella Re-radicalizes Us
+https://www.youtube.com/watch?v=lVEdQbUmcM8
+![Immagine 2025-11-12 231242dqwfeg.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20231242dqwfeg.png)

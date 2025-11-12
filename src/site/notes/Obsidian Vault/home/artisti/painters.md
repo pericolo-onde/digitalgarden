@@ -203,3 +203,13 @@ https://www.artnet.com/artists/osmar-schindler/3
 # Rafe15
 https://www.deviantart.com/rafe15
 ![ygfecrxchsudwi wucbnpubdi w.png](/img/user/Obsidian%20Vault/images/ygfecrxchsudwi%20wucbnpubdi%20w.png)
+
+## __digidog__
+https://www.instagram.com/__digidog__#
+![wdefrghtgefrwdfqeg.png](/img/user/Obsidian%20Vault/images/wdefrghtgefrwdfqeg.png)
+
+# Yoshitaka Amano
+https://amano-artwork.tumblr.com/
+![patty pravo tutt'al più (9)njghvfcdxszert.png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(9)njghvfcdxszert.png)
+
+

@@ -12,7 +12,7 @@
 
 [[Obsidian Vault/home/content/screenshots/fashion\|fashion]]
 
-[[Obsidian Vault/home/content/screenshots/films\|films]]
+[[Obsidian Vault/home/content/screenshots/film/films\|films]]
 
 [[Obsidian Vault/home/content/screenshots/grindr\|grindr]]
 

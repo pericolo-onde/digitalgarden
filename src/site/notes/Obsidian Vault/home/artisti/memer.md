@@ -115,3 +115,14 @@ https://www.instagram.com/isaxophoneu?igsh=cjBiNXVraDB6OThw#
 https://www.instagram.com/skeeter.mcbeaver/#
 ![Immagine 2025-09-15 190417.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20190417.png)
 
+## shitpostcentral67
+https://www.instagram.com/shitpostcentral67/#
+![Immagine 2025-11-12 223756eer.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20223756eer.png)
+
+## nemplyd
+https://www.instagram.com/nemplyd/#
+![Immagine 2025-11-12 223859grgrg.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20223859grgrg.png)
+
+
+
+

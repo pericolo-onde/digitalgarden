@@ -78,7 +78,7 @@ https://www.youtube.com/watch?v=sZNAYp5xBO4&t=339s
 
 # Saint-Saëns: 1. Cellokonzert ∙ hr-Sinfonieorchester ∙ Bruno Philippe ∙ Christoph Eschenbach
 https://www.youtube.com/watch?v=GsJQNwjrIA8&list=RDGsJQNwjrIA8&start_radio=1
-![maxresdefault.png](/img/user/Obsidian%20Vault/images/maxresdefault.png)
+![[maxresdefault.png\|maxresdefault.png]]
 
 # Tomás Luis de Victoria (1548–1611) - Tenebrae Responsories
 https://www.youtube.com/watch?v=RlIvozgamEA&list=RD4tx6SHLmzrA&index=2
@@ -123,3 +123,17 @@ https://www.youtube.com/watch?v=59q3mL3VEGY&list=RD59q3mL3VEGY&start_radio=1
 # Kate Bush - Wuthering Heights
 https://www.youtube.com/watch?v=-1pMMIe4hb4
 ![Immagine 2025-11-10 233317f3rght65yjhtbgefwvdqs.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-10%20233317f3rght65yjhtbgefwvdqs.png)
+
+# Krzysztof Penderecki Threnody to the Victims of Hiroshima (1960)
+https://youtu.be/H0wclmG6oqY?si=ALH0dkrd-O7MWJIX
+![ex5zcevwrbtngm.png](/img/user/Obsidian%20Vault/images/ex5zcevwrbtngm.png)
+
+# Gatekeeper
+https://wrong-planet.com/
+![Immagine 2025-11-12 223542dwfegr.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20223542dwfegr.png)
+
+# Storia Di Una Donna Che Ha Amato Due Volte Un Uomo Che Non Sapeva Amare
+https://www.youtube.com/watch?v=sSCcBCEr_90&list=RDsSCcBCEr_90&start_radio=1
+![ab67616d0000b2732bae124ff33b715a.png](/img/user/Obsidian%20Vault/images/ab67616d0000b2732bae124ff33b715a.png)
+
+

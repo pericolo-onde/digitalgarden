@@ -168,3 +168,8 @@ https://www.instagram.com/plazntzaley#
 https://www.instagram.com/instilladam/#
 ![Immagine 2025-10-30 005122.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20005122.png)
 
+## devlockdadragon
+https://www.instagram.com/devlockdadragon/#
+![Immagine 2025-11-12 221907edrwfe3tgrhtjr.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20221907edrwfe3tgrhtjr.png)
+
+
