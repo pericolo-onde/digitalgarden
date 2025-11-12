@@ -13,10 +13,12 @@
 
 [[Obsidian Vault/home/projects/maria\|maria]]
 
+[[Obsidian Vault/home/projects/mattonelle da nascondere\|mattonelle da nascondere]]
+
 [[Obsidian Vault/home/projects/playlists\|playlists]]
 
 [[Obsidian Vault/home/projects/interpassive\|interpassive]]
 
-[[Obsidian Vault/home/projects/mattonelle da nascondere\|mattonelle da nascondere]]
+
 
 [[Obsidian Vault/home/digital garden\|digital garden]]
