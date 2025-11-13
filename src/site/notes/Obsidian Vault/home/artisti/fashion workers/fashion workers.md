@@ -10,6 +10,8 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/corsetti\|corsetti]]
 
+[[Obsidian Vault/home/artisti/fashion workers/cravatte\|cravatte]]
+
 [[Obsidian Vault/home/artisti/fashion workers/gioielleri\|gioielleri]]
 
 [[Obsidian Vault/home/artisti/fashion workers/guanti\|guanti]]

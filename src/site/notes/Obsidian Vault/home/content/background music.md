@@ -136,4 +136,18 @@ https://wrong-planet.com/
 https://www.youtube.com/watch?v=sSCcBCEr_90&list=RDsSCcBCEr_90&start_radio=1
 ![ab67616d0000b2732bae124ff33b715a.png](/img/user/Obsidian%20Vault/images/ab67616d0000b2732bae124ff33b715a.png)
 
+# Keith Jarrett - The Köln Concert
+https://youtu.be/Chnpqca6HDE?si=mxblUUsA7vjQECP3
+![711D-rssPGLewgtrhjh.png](/img/user/711D-rssPGLewgtrhjh.png)
 
+## D:\fileDAeolian%20damage%20sequencer -  cloud:resolve
+https://cloudresolve.bandcamp.com/album/d-filedaeolian-20damage-20sequencer
+![a2239587761_16efgrbgfe.png](/img/user/a2239587761_16efgrbgfe.png)
+
+# MARISA SACCHETTO IL MIO AMORE PER MARIO (CANZONISSIMA 1972)
+https://www.youtube.com/watch?v=MCWZ8zN_1Iw&list=RDMCWZ8zN_1Iw&start_radio=1
+![maxresdefaultwfde.png](/img/user/maxresdefaultwfde.png)
+
+# MARISA SACCHETTO - IT'S A HORSE OF A DIFFERENT COLOUR
+https://www.youtube.com/watch?v=2yzcq7-JrJc&list=RD2yzcq7-JrJc&start_radio=1
+![sddefaultefffefe.png](/img/user/sddefaultefffefe.png)
