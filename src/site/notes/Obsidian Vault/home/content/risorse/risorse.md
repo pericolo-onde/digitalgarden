@@ -6,6 +6,10 @@
 
 [[Obsidian Vault/home/content/risorse/archivi\|archivi]]
 
+[[corsi online gratutiti\|corsi online gratutiti]]
+
+[[Obsidian Vault/home/content/library/masters\|masters]]
+
 [[Obsidian Vault/home/content/risorse/scientific documents AI\|scientific documents AI]]
 
 [[Obsidian Vault/home/content/risorse/copia chiavi\|copia chiavi]]

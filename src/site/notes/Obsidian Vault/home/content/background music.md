@@ -138,16 +138,21 @@ https://www.youtube.com/watch?v=sSCcBCEr_90&list=RDsSCcBCEr_90&start_radio=1
 
 # Keith Jarrett - The Köln Concert
 https://youtu.be/Chnpqca6HDE?si=mxblUUsA7vjQECP3
-![711D-rssPGLewgtrhjh.png](/img/user/711D-rssPGLewgtrhjh.png)
+![711D-rssPGLewgtrhjh.png](/img/user/Obsidian%20Vault/images/711D-rssPGLewgtrhjh.png)
 
 ## D:\fileDAeolian%20damage%20sequencer -  cloud:resolve
 https://cloudresolve.bandcamp.com/album/d-filedaeolian-20damage-20sequencer
-![a2239587761_16efgrbgfe.png](/img/user/a2239587761_16efgrbgfe.png)
+![a2239587761_16efgrbgfe.png](/img/user/Obsidian%20Vault/images/a2239587761_16efgrbgfe.png)
 
 # MARISA SACCHETTO IL MIO AMORE PER MARIO (CANZONISSIMA 1972)
 https://www.youtube.com/watch?v=MCWZ8zN_1Iw&list=RDMCWZ8zN_1Iw&start_radio=1
-![maxresdefaultwfde.png](/img/user/maxresdefaultwfde.png)
+![maxresdefaultwfde.png](/img/user/Obsidian%20Vault/images/maxresdefaultwfde.png)
 
 # MARISA SACCHETTO - IT'S A HORSE OF A DIFFERENT COLOUR
 https://www.youtube.com/watch?v=2yzcq7-JrJc&list=RD2yzcq7-JrJc&start_radio=1
-![sddefaultefffefe.png](/img/user/sddefaultefffefe.png)
+![sddefaultefffefe.png](/img/user/Obsidian%20Vault/images/sddefaultefffefe.png)
+
+# Dosa My Honey - Zazie's Uh Flower
+https://www.youtube.com/watch?v=GozP8IfoMpc
+![Immagine 2025-11-14 153942rgbg.png](/img/user/Immagine%202025-11-14%20153942rgbg.png)
+

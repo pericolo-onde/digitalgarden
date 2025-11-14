@@ -4,5 +4,5 @@
 
 # Maison Cilento (1780)
 https://www.cilento1780.it/categoria/cravatte/
-![Cilento-1780-Cravatte-lavorate-a.png](/img/user/Cilento-1780-Cravatte-lavorate-a.png)
+![Cilento-1780-Cravatte-lavorate-a.png](/img/user/Obsidian%20Vault/images/Cilento-1780-Cravatte-lavorate-a.png)
 

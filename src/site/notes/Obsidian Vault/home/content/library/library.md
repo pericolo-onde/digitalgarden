@@ -30,5 +30,5 @@
 
 [[Obsidian Vault/home/content/library/Files for RetroGameArtbooksAndIllustrations\|Files for RetroGameArtbooksAndIllustrations]]
 
-[[Obsidian Vault/home/content/library/masters\|masters]]
+
 

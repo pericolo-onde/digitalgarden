@@ -16,7 +16,11 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/guanti\|guanti]]
 
+[[maglieria\|maglieria]]
+
 [[Obsidian Vault/home/artisti/fashion workers/pantaloni\|pantaloni]]
+
+[[sartorie\|sartorie]]
 
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
