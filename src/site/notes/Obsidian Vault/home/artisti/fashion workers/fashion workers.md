@@ -16,11 +16,11 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/guanti\|guanti]]
 
-[[maglieria\|maglieria]]
+[[Obsidian Vault/home/artisti/fashion workers/maglieria\|maglieria]]
 
 [[Obsidian Vault/home/artisti/fashion workers/pantaloni\|pantaloni]]
 
-[[sartorie\|sartorie]]
+[[Obsidian Vault/home/artisti/fashion workers/sartorie\|sartorie]]
 
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
@@ -55,10 +55,11 @@ https://www.instagram.com/trashyclothing/#
 ![image-36.png](/img/user/Obsidian%20Vault/images/image-36.png)
 ## lynxziqi
 https://www.instagram.com/lynxziqi/#
-![image-39.png](/img/user/Obsidian%20Vault/images/image-39.png)
+![image-39 3rniybnjmowkuone23icejuonrm 2.png](/img/user/Obsidian%20Vault/images/image-39%203rniybnjmowkuone23icejuonrm%202.png)
+
 ## gretamoschata
 https://www.instagram.com/gretamoschata/#
-![image-41.png](/img/user/Obsidian%20Vault/images/image-41.png)
+![image-41 3yvcewuinxbeeiycojbep32ucd229p29p2929 2.png](/img/user/Obsidian%20Vault/images/image-41%203yvcewuinxbeeiycojbep32ucd229p29p2929%202.png)
 
 # krobos
 https://www.instagram.com/krobos/#
@@ -74,11 +75,7 @@ https://www.instagram.com/theolalis/#
 
 ## claudiapotycki
 https://www.instagram.com/claudiapotycki/#
-![Immagine 2025-09-14 172314.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172314.png)
-
-## nettynauta
-https://www.instagram.com/nettynauta/#
-![Immagine 2025-09-14 172348.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172348.png)
+![Immagine 2025-09-14 172316ewibr3u2b929292922dx2c.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172316ewibr3u2b929292922dx2c.png)
 
 ## migueladroverofficial
 https://www.instagram.com/migueladroverofficial/#
@@ -107,4 +104,10 @@ https://www.instagram.com/mission.mergiela/#
 ## tidjjane
 https://www.instagram.com/tidjjane/#
 ![Immagine 2025-11-04 233027.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20233027.png)
+
+## norlha_atelier
+https://www.instagram.com/norlha_atelier/#
+![Immagine 2025-11-14 235550d3fw24egh5j3g2f1rtg4qf1rd2.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-14%20235550d3fw24egh5j3g2f1rtg4qf1rd2.png)
+
+
 
