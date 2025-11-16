@@ -5,7 +5,7 @@
 
 ## arcangelosassolino
 https://www.instagram.com/arcangelosassolino/#
-![image-15.png](/img/user/Obsidian%20Vault/images/image-15.png)
+![image-15 3nuygftrd65esxrdc6ytiuv-1.png](/img/user/Obsidian%20Vault/images/image-15%203nuygftrd65esxrdc6ytiuv-1.png)
 
 ## Harris Rosenblum
 https://www.instagram.com/harris.rosenblum#
@@ -13,7 +13,7 @@ https://www.instagram.com/harris.rosenblum#
 
 ## donato_piccolo
 https://www.instagram.com/donato_piccolo/#
-![image-16.png](/img/user/Obsidian%20Vault/images/image-16.png)
+![image-16 3nbggg.png](/img/user/Obsidian%20Vault/images/image-16%203nbggg.png)
 
 ## princemonkey
 https://www.instagram.com/princemonkey/#
@@ -49,7 +49,7 @@ https://www.instagram.com/wojtyl.a/#
 
 ## tundra_time_
 https://www.instagram.com/tundra_time_/#
-![image-29.png](/img/user/Obsidian%20Vault/images/image-29.png)
+![image-29 3trgwgwvevfewe 2.png](/img/user/Obsidian%20Vault/images/image-29%203trgwgwvevfewe%202.png)
 
 ## anthr0morph
 https://www.instagram.com/anthr0morph/#
@@ -57,7 +57,7 @@ https://www.instagram.com/anthr0morph/#
 
 ## michaelastark
 https://www.instagram.com/michaelastark?igsh=ZHlmbzFvYWlicjJr#
-![corsetr sayhbu.png](/img/user/Obsidian%20Vault/images/corsetr%20sayhbu.png)
+![corsetr sayhbu 3rvecmwkxàwcevlimr 2.png](/img/user/Obsidian%20Vault/images/corsetr%20sayhbu%203rvecmwkx%C3%A0wcevlimr%202.png)
 
 ## nozhiwojifen1
 https://www.instagram.com/nozhiwojifen1/#
@@ -86,7 +86,7 @@ https://www.instagram.com/shampoooty/#
 
 ## pietrospirito
 https://www.instagram.com/pietrospirito/#
-![image-7 1.png](/img/user/Obsidian%20Vault/images/image-7%201.png)
+![image-7 1 3fvjdenhsewqnjmkcmiqe.png](/img/user/Obsidian%20Vault/images/image-7%201%203fvjdenhsewqnjmkcmiqe.png)
 
 ## eniwamura
 https://www.instagram.com/eniwamura#
@@ -110,7 +110,7 @@ https://www.instagram.com/tomhardwickallan/#
 
 ## istota_istoti
 https://www.instagram.com/istota_istoti/#
-![Immagine 2025-09-14 165143.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165143.png)
+![Immagine 2025-09-14 165145rjhnegfwcbjqnmkjcvumkowci.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165145rjhnegfwcbjqnmkjcvumkowci.png)
 
 ## nyu_uyn_nyu
 https://www.instagram.com/nyu_uyn_nyu/#
@@ -166,7 +166,7 @@ https://www.instagram.com/kanemaki_yoshitoshi#
 
 # Joseph Choma
 https://www.instagram.com/josephchomadesign
-![Immagine 2025-10-05 162254.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20162254.png)
+![Immagine 2025-10-05 162256frnceygubdonixqpv cè9q jce.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-05%20162256frnceygubdonixqpv%20c%C3%A89q%20jce.png)
 
 ## combo.toys
 https://www.instagram.com/combo.toys?igsh=MTFlcnFwNGh5Y2poaw%3D%3D#
@@ -180,3 +180,10 @@ https://www.instagram.com/aus_alien_glass?igsh=YTkwOXR0eWU5bDVy#
 https://www.instagram.com/patricktuttofuoco/?hl=it
 ![3cdgyucx3bu8yc2eyu23dgyuqcfg.png](/img/user/Obsidian%20Vault/images/3cdgyucx3bu8yc2eyu23dgyuqcfg.png)
 
+# katharina grosse
+https://www.katharinagrosse.com/
+![Immagine 2025-11-14 163329.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-14%20163329.png)
+
+# Ugo La Pietra
+https://www.ugolapietra.com/
+![vrepuned rvfiupbndes wvj.png](/img/user/Obsidian%20Vault/images/vrepuned%20rvfiupbndes%20wvj.png)

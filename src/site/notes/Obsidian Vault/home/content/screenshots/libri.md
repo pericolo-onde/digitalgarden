@@ -2,11 +2,14 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/screenshots/libri/","tags":["books","book"]}
 ---
 
-![CMRII_Cover-704x1024dvsfb.png](/img/user/CMRII_Cover-704x1024dvsfb.png)
-![WhatsApp Image 2025-11-14 at 3.36.25 PM.jpeg](/img/user/WhatsApp%20Image%202025-11-14%20at%203.36.25%20PM.jpeg)
-![61myN58kxJL._AC_UF1000,1000_QL80.png](/img/user/61myN58kxJL._AC_UF1000,1000_QL80.png)
+![CMRII_Cover-704x1024dvsfb.png](/img/user/Obsidian%20Vault/images/CMRII_Cover-704x1024dvsfb.png)
+![WhatsApp Image 2025-11-14 at 3.36.25 PM.jpeg](/img/user/Obsidian%20Vault/images/WhatsApp%20Image%202025-11-14%20at%203.36.25%20PM.jpeg)
+![61myN58kxJL._AC_UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/61myN58kxJL._AC_UF1000,1000_QL80.png)
 ![9788823520202_0_0_536_0_75awesvrdftngmh,j.png](/img/user/Obsidian%20Vault/images/9788823520202_0_0_536_0_75awesvrdftngmh,j.png)
 ![81ckRlnC2KL._AC_UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/81ckRlnC2KL._AC_UF1000,1000_QL80.png)
+![81qdiqD1SWL._AC_UF1000,1000_QL80ntdrnbtbrebwerwber.jpg](/img/user/Obsidian%20Vault/images/81qdiqD1SWL._AC_UF1000,1000_QL80ntdrnbtbrebwerwber.jpg)
+![bx62771-ivEGaJp6vsdtniuyvt7cr6tyctry6cfvytu7vyiu.png](/img/user/Obsidian%20Vault/images/bx62771-ivEGaJp6vsdtniuyvt7cr6tyctry6cfvytu7vyiu.png)
+![9788806187019_0_0_536_0_75.png](/img/user/Obsidian%20Vault/images/9788806187019_0_0_536_0_75.png)
 ![IMG_0499.jpeg](/img/user/Obsidian%20Vault/images/IMG_0499.jpeg)![IMG_0781.png](/img/user/Obsidian%20Vault/images/IMG_0781.png)![IMG_1665.png](/img/user/Obsidian%20Vault/images/IMG_1665.png)![IMG_1666.png](/img/user/Obsidian%20Vault/images/IMG_1666.png)![IMG_1667.png](/img/user/Obsidian%20Vault/images/IMG_1667.png)![IMG_1668.png](/img/user/Obsidian%20Vault/images/IMG_1668.png)![IMG_1782.png](/img/user/Obsidian%20Vault/images/IMG_1782.png)![IMG_2389.png](/img/user/Obsidian%20Vault/images/IMG_2389.png)![IMG_2472.png](/img/user/Obsidian%20Vault/images/IMG_2472.png)![IMG_2761.png](/img/user/Obsidian%20Vault/images/IMG_2761.png)![IMG_9667.png](/img/user/Obsidian%20Vault/images/IMG_9667.png)![IMG_9764.png](/img/user/Obsidian%20Vault/images/IMG_9764.png)![IMG_7140.png](/img/user/Obsidian%20Vault/images/IMG_7140.png)![IMG_3422.png](/img/user/Obsidian%20Vault/images/IMG_3422.png)
 ![81VpfiYTCHL._UF1000,1000_QL80_.jpg](/img/user/Obsidian%20Vault/images/81VpfiYTCHL._UF1000,1000_QL80_.jpg)
 ![91imFS80fHL._UF1000,1000_QL80_.jpg](/img/user/Obsidian%20Vault/images/91imFS80fHL._UF1000,1000_QL80_.jpg)

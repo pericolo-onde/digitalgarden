@@ -122,7 +122,7 @@ https://www.instagram.com/solomonvoneichmann/#
 
 ## loladupre
 https://www.instagram.com/loladupre/#
-![Immagine 2025-09-15 204713.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204713.png)
+![[Immagine 2025-09-15 204714.png\|Immagine 2025-09-15 204714.png]]
 
 ## ryanrugops
 https://www.instagram.com/ryanrugops/#
@@ -178,7 +178,7 @@ https://archive.org/details/1280pxArnoldBcklinVillaByTheSeaGoogleArtProject/1047
 
 ## MinJeong An
 https://www.instagram.com/minjeongart/#
-![Immagine 2025-11-07 211225.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20211225.png)
+![[Immagine 2025-11-07 211226.png\|Immagine 2025-11-07 211226.png]]
 
 # Louis Fratino
 https://www.smjny.com/louis-fratino
@@ -212,4 +212,5 @@ https://www.instagram.com/__digidog__#
 https://amano-artwork.tumblr.com/
 ![patty pravo tutt'al più (9)njghvfcdxszert.png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(9)njghvfcdxszert.png)
 
-
+# erotic scene pablo - Picasso
+![restrictedbhnb.jpg](/img/user/Obsidian%20Vault/images/restrictedbhnb.jpg)

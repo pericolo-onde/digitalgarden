@@ -21,7 +21,7 @@ https://www.instagram.com/courtesy_vulture/#
 
 ## cutexbaby7037
 https://www.instagram.com/cutexbaby7037/#
-![Immagine 2025-09-15 194313.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20194313.png)
+![Immagine 2025-09-15 194315.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20194315.png)
 
 ## traumatised.exe
 https://www.instagram.com/traumatised.exe/#
@@ -78,7 +78,7 @@ https://www.instagram.com/katerine_dm/#
 
 ## doorofdestinies
 https://www.instagram.com/doorofdestinies/#
-![Immagine 2025-09-14 164612.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164612.png)
+![Immagine 2025-09-14 164614.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164614.png)
 
 ## ozbren.xyz
 https://www.instagram.com/ozbren.xyz/#
@@ -94,7 +94,7 @@ https://www.instagram.com/oripeerdream?igsh=dDIxd2hmdGxtNjlr#
 
 ## markkandres
 https://www.instagram.com/markkandres/#
-![Immagine 2025-09-15 203823.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20203823.png)
+![Immagine 2025-09-15 203825.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20203825.png)
 
 # 3121534312
 https://www.youtube.com/@3121534312/videos
@@ -116,4 +116,6 @@ https://www.youtube.com/@nana825763/playlists
 https://aidn.jp/
 ![Immagine 2025-11-08 232654gre45hjr6ekm.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-08%20232654gre45hjr6ekm.png)
 
-
+# Tamers12345
+https://www.tamersarchive.com/
+![hq720rgfe.png](/img/user/Obsidian%20Vault/images/hq720rgfe.png)

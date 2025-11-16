@@ -8,7 +8,7 @@
 
 # Incoming and Unsorted Zines
 https://archive.org/details/zines_inbox
-![Immagine 2025-11-04 234819.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20234819.png)
+![[Immagine 2025-11-04 234820.png\|Immagine 2025-11-04 234820.png]]
 
 # infinite books
 https://archive.org/details/texts

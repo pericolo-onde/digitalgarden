@@ -15,7 +15,7 @@ https://www.instagram.com/alessiowedgie#
 
 ## rrsorroww
 https://www.instagram.com/rrsorroww/#
-![hang gyuahbjk.png](/img/user/Obsidian%20Vault/images/hang%20gyuahbjk.png)
+![[hang gyuahbjk 2.png\|hang gyuahbjk 2.png]]
 
 ## candycoatedus
 https://www.instagram.com/candycoatedus#
@@ -31,7 +31,7 @@ https://www.instagram.com/unknownbound1492/#
 
 ## wetlook_cosplay_princess
 https://www.instagram.com/wetlook_cosplay_princess/#
-![Immagine 2025-09-15 193653.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193653.png)
+![[Immagine 2025-09-15 193654.png\|Immagine 2025-09-15 193654.png]]
 
 ## straitjacketshop
 https://www.instagram.com/straitjacketshop/#
@@ -43,7 +43,7 @@ https://www.youtube.com/@amandag8258
 
 ## realpedalpumping
 https://www.instagram.com/realpedalpumping/#
-![Immagine 2025-09-15 192034.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192034.png)
+![[Immagine 2025-09-15 192035.png\|Immagine 2025-09-15 192035.png]]
 
 ## sneaker__styler
 https://www.instagram.com/sneaker__styler/#
@@ -71,11 +71,11 @@ https://www.instagram.com/nylon_mania999/#
 
 ## latexluke
 https://www.instagram.com/latexluke?igsh=ZHZvOGlqODFqMmds#
-![latex.png](/img/user/Obsidian%20Vault/images/latex.png)
+![latex 2eeddeee.png](/img/user/Obsidian%20Vault/images/latex%202eeddeee.png)
 
 ## nikkothemutt1
 https://www.instagram.com/nikkothemutt1/#
-![Immagine 2025-09-26 001401.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20001401.png)
+![[Immagine 2025-09-26 001401 2.png\|Immagine 2025-09-26 001401 2.png]]
 
 ## furrjoi001
 https://www.instagram.com/furrjoi001/#
@@ -91,7 +91,7 @@ https://www.instagram.com/rubberdragonch/#
 
 ## joeslilsimp
 https://www.instagram.com/joeslilsimp/#
-![Immagine 2025-09-15 191709.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191709.png)
+![[Immagine 2025-09-15 191710.png\|Immagine 2025-09-15 191710.png]]
 
 ## taithinnn
 https://www.instagram.com/taithinnn/#
@@ -127,7 +127,7 @@ https://www.instagram.com/santiago_looner/#
 
 ## princesskaykay93
 https://www.instagram.com/princesskaykay93/#
-![Immagine 2025-09-14 173056.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173056.png)
+![Immagine 2025-11-14 gfggeegf.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-14%20gfggeegf.png)
 
 ## latex_gloves_factory
 https://www.instagram.com/latex_gloves_factory?igsh=MWF6cDlzaTk3aml6ZA%3D%3D#

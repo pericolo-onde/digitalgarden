@@ -22,6 +22,8 @@
 
 [[Obsidian Vault/home/content/library/Recueil de cent estampes representant differentes nations du Levant\|Recueil de cent estampes representant differentes nations du Levant]]
 
+[[Obsidian Vault/home/content/library/ricettari\|ricettari]]
+
 [[Obsidian Vault/home/content/library/Santi e miti\|Santi e miti]]
 
 [[Obsidian Vault/home/content/library/The Anatomy of the Arteries of the Human Body\|The Anatomy of the Arteries of the Human Body]]

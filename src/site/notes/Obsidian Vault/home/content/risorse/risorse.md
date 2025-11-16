@@ -6,7 +6,7 @@
 
 [[Obsidian Vault/home/content/risorse/archivi\|archivi]]
 
-[[corsi online gratutiti\|corsi online gratutiti]]
+[[Obsidian Vault/home/content/risorse/corsi online gratutiti\|corsi online gratutiti]]
 
 [[Obsidian Vault/home/content/library/masters\|masters]]
 

@@ -9,7 +9,7 @@ https://www.instagram.com/gretifacose#
 
 ## ir.eye.is_lab
 https://www.instagram.com/ir.eye.is_lab#
-![Immagine 2025-10-01 234214.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20234214.png)
+![[Immagine 2025-10-01 234215.png\|Immagine 2025-10-01 234215.png]]
 
 ## solandme_
 https://www.instagram.com/solandme_#

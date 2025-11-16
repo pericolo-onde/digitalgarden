@@ -4,11 +4,15 @@
 
 [[Obsidian Vault/home/content/da visitare\|da visitare]]
 
+[[Obsidian Vault/home/content/library/essays\|essays]]
+
 [[Obsidian Vault/home/content/library/library\|library]]
 
 [[Obsidian Vault/home/content/musei/musei\|musei]]
 
 [[Obsidian Vault/home/content/risorse/risorse\|risorse]]
+
+[[Obsidian Vault/home/content/ristoranti\|ristoranti]]
 
 [[Obsidian Vault/home/content/screenshots/screenshot\|screenshot]]
 

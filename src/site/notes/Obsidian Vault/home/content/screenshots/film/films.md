@@ -6,8 +6,9 @@
 [[Obsidian Vault/home/content/screenshots/film/lista film\|lista film]]
 
 ![Immagine 2025-10-30 003719.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20003719.png)
-![MV5BZGZjMDJkZTgtOThmYy00Mjk2LWFk.png](/img/user/Obsidian%20Vault/images/MV5BZGZjMDJkZTgtOThmYy00Mjk2LWFk.png)![La stradawfdeghrdfngmj.png](/img/user/Obsidian%20Vault/images/La%20stradawfdeghrdfngmj.png)![[maxresdefault.png\|maxresdefault.png]]![81c1S1YFrJL._AC_UF894,1000_QL80.png](/img/user/Obsidian%20Vault/images/81c1S1YFrJL._AC_UF894,1000_QL80.png)
-![Labirintomaniemanie.png](/img/user/Obsidian%20Vault/images/Labirintomaniemanie.png)
+![MV5BZWU0ZTA5M2UtNGM2Ny00NjMxLWFi.jpg](/img/user/Obsidian%20Vault/images/MV5BZWU0ZTA5M2UtNGM2Ny00NjMxLWFi.jpg)
+![MV5BZGZjMDJkZTgtOThmYy00Mjk2LWFk.png](/img/user/Obsidian%20Vault/images/MV5BZGZjMDJkZTgtOThmYy00Mjk2LWFk.png)![La stradawfdeghrdfngmj.png](/img/user/Obsidian%20Vault/images/La%20stradawfdeghrdfngmj.png)![81c1S1YFrJL._AC_UF894,1000_QL80.png](/img/user/Obsidian%20Vault/images/81c1S1YFrJL._AC_UF894,1000_QL80.png)
+![[Labirintomaniemanie.png\|Labirintomaniemanie.png]]
 ![The_Animatrix-650689548-mmed-1.png](/img/user/Obsidian%20Vault/images/The_Animatrix-650689548-mmed-1.png)
 ![61jhDFFa0uL._AC_UF894,1000_QL80.png](/img/user/Obsidian%20Vault/images/61jhDFFa0uL._AC_UF894,1000_QL80.png)
 ![91PGkfH7AFL._AC_UF894,1000_QL80.png](/img/user/Obsidian%20Vault/images/91PGkfH7AFL._AC_UF894,1000_QL80.png)

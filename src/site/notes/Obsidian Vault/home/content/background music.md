@@ -41,7 +41,7 @@ https://youtu.be/hELmcWBs9R0?si=fHM_MwDYvk2rBSM6
 
 # noodlecan
 (https://www.instagram.com/noodlecan/#)
-![Immagine 2025-09-14 164801.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164801.png)
+![[Immagine 2025-09-14 164802.png\|Immagine 2025-09-14 164802.png]]
 
 ## bogdanraczynski
 https://www.instagram.com/bogdanraczynski/#
@@ -154,5 +154,12 @@ https://www.youtube.com/watch?v=2yzcq7-JrJc&list=RD2yzcq7-JrJc&start_radio=1
 
 # Dosa My Honey - Zazie's Uh Flower
 https://www.youtube.com/watch?v=GozP8IfoMpc
-![Immagine 2025-11-14 153942rgbg.png](/img/user/Immagine%202025-11-14%20153942rgbg.png)
+![Immagine 2025-11-14 153942rgbg.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-14%20153942rgbg.png)
 
+# Mounfarija
+https://www.youtube.com/watch?v=hxPyhswmPto
+![028684477b36d8bee7df47d0119fa7a1effefe.jpg](/img/user/Obsidian%20Vault/images/028684477b36d8bee7df47d0119fa7a1effefe.jpg)
+
+# Rachmaninoff-Piano Concerto No.3 (Cadenza) - Yefim Bronfman-Piano
+https://www.youtube.com/watch?v=Bhj7hunyVjw
+![Immagine 2025-11-14 232057wdf.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-14%20232057wdf.png)

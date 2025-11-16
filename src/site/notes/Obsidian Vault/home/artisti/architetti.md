@@ -9,7 +9,7 @@ https://www.instagram.com/dan.kimber_studio#
 
 # OFFICE 126
 https://officekgdvs.com/projects/126
-![Immagine 2025-11-07 22395812ed3rf4bv5rn.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%2022395812ed3rf4bv5rn.png)
+![[Immagine 2025-11-07 22395812ed3rf4bv5rn 2.png\|Immagine 2025-11-07 22395812ed3rf4bv5rn 2.png]]
 
 # SO–IL
 https://solidobjectives.com/work/kukje-gallery/

@@ -29,7 +29,7 @@ https://www.instagram.com/missing0714/#
 
 ## frightenedsheep25937582
 https://www.instagram.com/frightenedsheep25937582/#
-![Immagine 2025-09-14 173735.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173735.png)
+![[Immagine 2025-09-14 173736.png\|Immagine 2025-09-14 173736.png]]
 
 ## w0w_ma0
 https://www.instagram.com/w0w_ma0/#
@@ -65,7 +65,7 @@ https://youtu.be/derc1eRZX1I?si=S9yl3jWxPcZE7Nyz
 
 # Nobey One
 https://www.youtube.com/@nobeyone/videos
-![3Qkt3g.png](/img/user/Obsidian%20Vault/images/3Qkt3g.png)
+![[3Qkt3g 2.png\|3Qkt3g 2.png]]
 
 # 蔡曉檞
 https://www.youtube.com/@%E8%94%A1%E6%9B%89%E6%AA%9E
@@ -117,7 +117,7 @@ https://www.instagram.com/skeeter.mcbeaver/#
 
 ## shitpostcentral67
 https://www.instagram.com/shitpostcentral67/#
-![Immagine 2025-11-12 223756eer.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20223756eer.png)
+![[Immagine 2025-11-12 223756eer 2.png\|Immagine 2025-11-12 223756eer 2.png]]
 
 ## nemplyd
 https://www.instagram.com/nemplyd/#

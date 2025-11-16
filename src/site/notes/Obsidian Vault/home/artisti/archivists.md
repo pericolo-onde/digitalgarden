@@ -36,7 +36,7 @@ https://www.instagram.com/wtfxiu/#
 
 ## brezavillarreal
 https://www.instagram.com/brezavillarreal/#
-![Immagine 2025-09-14 182004.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182004.png)
+![[Immagine 2025-09-14 182005.png\|Immagine 2025-09-14 182005.png]]
 
 ## realmea0719
 https://www.instagram.com/realmea0719#
