@@ -122,7 +122,7 @@ https://www.instagram.com/solomonvoneichmann/#
 
 ## loladupre
 https://www.instagram.com/loladupre/#
-![[Immagine 2025-09-15 204714.png\|Immagine 2025-09-15 204714.png]]
+![Immagine 2025-09-15 204715.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204715.png)
 
 ## ryanrugops
 https://www.instagram.com/ryanrugops/#
@@ -178,7 +178,7 @@ https://archive.org/details/1280pxArnoldBcklinVillaByTheSeaGoogleArtProject/1047
 
 ## MinJeong An
 https://www.instagram.com/minjeongart/#
-![[Immagine 2025-11-07 211226.png\|Immagine 2025-11-07 211226.png]]
+![Immagine 2025-11-07 211227.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20211227.png)
 
 # Louis Fratino
 https://www.smjny.com/louis-fratino
