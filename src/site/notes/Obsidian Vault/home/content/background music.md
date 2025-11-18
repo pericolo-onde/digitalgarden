@@ -2,10 +2,17 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/background-music/"}
 ---
 
-<iframe title="Steve Reich, Music for Eighteen Musicians - Synergy Vocals - Ensemble intercontemporain" src="https://www.youtube.com/embed/ApnbymNz9dE?feature=oembed" height="113" width="200" allowfullscreen="" allow="fullscreen" style="aspect-ratio: 1.76991 / 1; width: 100%; height: 100%;"></iframe>
+# Steve Reich, Music for Eighteen Musicians - Synergy Vocals - Ensemble intercontemporain
+https://www.youtube.com/watch?v=ApnbymNz9dE&list=RDApnbymNz9dE&start_radio=1&t=60s
+![w24egwbhgvewcwevwewgfrwrrrr.jpg](/img/user/Obsidian%20Vault/images/w24egwbhgvewcwevwewgfrwrrrr.jpg)
+
+# SHOSTAKOVICH - Piano Trio No. 2 in E minor (Op. 67) 
+https://www.youtube.com/watch?v=os4N-dR7CuY
+![maxresdefaultgeyixsunwpqaè.jpg](/img/user/Obsidian%20Vault/images/maxresdefaultgeyixsunwpqa%C3%A8.jpg)
 
 # Miles Davis - Guinnevere
 https://youtu.be/nnFHEjXdaSE?si=1We3mtuVfNlkok4V
+![sddefaultliy..jpg](/img/user/Obsidian%20Vault/images/sddefaultliy..jpg)
 
 # الزمن الجميل .. انت عمرى
 https://youtu.be/94oOi7rS1XI?si=YWTFYESedDPCT8mw
@@ -22,17 +29,19 @@ https://www.youtube.com/watch?v=qEdqvw_n1Mk&list=RDqEdqvw_n1Mk&start_radio=1
 
 # Sayed darwish - Ana Haweit
 https://youtu.be/4RDVUZTqmt8?si=9Eud7pktIfAa4pjm
+![maxresdefaultethrjnmdbhgs.jpg](/img/user/Obsidian%20Vault/images/maxresdefaultethrjnmdbhgs.jpg)
 
 # Music To Become A Restful Cube To
 https://youtu.be/jXkATAvL49U?si=XeEBo83ofujBzU_p
+![maxresdefaultehtjnntnbtbeteb.jpg](/img/user/Obsidian%20Vault/images/maxresdefaultehtjnntnbtbeteb.jpg)
 
 # George Garside - The Jester
 https://youtu.be/ktTfV6VEATk?si=7IKRscckm6s6QuRG
+![maxresdefaultrbvev fdveweevwve.jpg](/img/user/Obsidian%20Vault/images/maxresdefaultrbvev%20fdveweevwve.jpg)
 
 # Kemani Tatyos Ekserciyan
 https://youtu.be/24xU6h0kvEs?si=DgUhah2UStiPqRuW
-
-
+![maxresdefaulttnbhgrfdsvcaw.jpg](/img/user/Obsidian%20Vault/images/maxresdefaulttnbhgrfdsvcaw.jpg)
 
 # Ben Nobuto
 https://www.youtube.com/@bennobuto/videos
@@ -41,7 +50,7 @@ https://youtu.be/hELmcWBs9R0?si=fHM_MwDYvk2rBSM6
 
 # noodlecan
 (https://www.instagram.com/noodlecan/#)
-![[Immagine 2025-09-14 164802.png\|Immagine 2025-09-14 164802.png]]
+![Immagine 2025-09-14 164803.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164803.png)
 
 ## bogdanraczynski
 https://www.instagram.com/bogdanraczynski/#
@@ -78,7 +87,7 @@ https://www.youtube.com/watch?v=sZNAYp5xBO4&t=339s
 
 # Saint-Saëns: 1. Cellokonzert ∙ hr-Sinfonieorchester ∙ Bruno Philippe ∙ Christoph Eschenbach
 https://www.youtube.com/watch?v=GsJQNwjrIA8&list=RDGsJQNwjrIA8&start_radio=1
-![[maxresdefault.png\|maxresdefault.png]]
+![hq720savfwedbnfgh.jpg](/img/user/Obsidian%20Vault/images/hq720savfwedbnfgh.jpg)
 
 # Tomás Luis de Victoria (1548–1611) - Tenebrae Responsories
 https://www.youtube.com/watch?v=RlIvozgamEA&list=RD4tx6SHLmzrA&index=2
@@ -91,10 +100,6 @@ https://www.youtube.com/watch?v=PjR0_cQQNgo
 # 들어본 적 없는 왈츠 모음집 (Una raccolta di valzer di cui non hai mai sentito parlare)
 https://www.youtube.com/watch?v=qP0dSxLOTEc&list=RDqP0dSxLOTEc&start_radio=1
 ![723a6a_6f87f0bf99f2423f88db7f8eb-1.png](/img/user/Obsidian%20Vault/images/723a6a_6f87f0bf99f2423f88db7f8eb-1.png)
-
-# Music for 18 Musicians
-https://www.youtube.com/watch?v=1oOmUi4HGt0&list=RD1oOmUi4HGt0&start_radio=1
-![91CtJy4tz4L._UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/91CtJy4tz4L._UF1000,1000_QL80.png)
 
 # Sora - Re.sort (2003)
 https://youtu.be/6mPJ2xnhqPM?si=ipSlhPZtCNuWWVlY

@@ -9,3 +9,7 @@ https://www.youtube.com/watch?v=DrxKR3UjJwk&t=970s
 # Germany Was Never Denazified
 https://www.youtube.com/watch?v=2kwe1iMux0c
 ![maxresdefaultffffff.png](/img/user/Obsidian%20Vault/images/maxresdefaultffffff.png)
+
+# Zoroastrian Towers of Silence
+https://www.youtube.com/watch?v=TcLRHUb_1LE
+![Tower_of_Silence-03wqegrhtmy.jpg](/img/user/Obsidian%20Vault/images/Tower_of_Silence-03wqegrhtmy.jpg)
