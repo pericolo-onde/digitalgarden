@@ -7,3 +7,5 @@ galen tipton
 napkin terrorizer
 David Firth
 burialgoods
+Steve Reich
+Giulio Paolini
