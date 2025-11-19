@@ -168,3 +168,7 @@ https://www.youtube.com/watch?v=hxPyhswmPto
 # Rachmaninoff-Piano Concerto No.3 (Cadenza) - Yefim Bronfman-Piano
 https://www.youtube.com/watch?v=Bhj7hunyVjw
 ![Immagine 2025-11-14 232057wdf.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-14%20232057wdf.png)
+
+# Steve Reich - Music for Mallet Instruments, Voices and Organ (1974)
+https://www.youtube.com/watch?v=pANyhXRsp2g&list=RDpANyhXRsp2g&start_radio=1
+![sddefaultuyguyiyujhghug.jpg](/img/user/sddefaultuyguyiyujhghug.jpg)
