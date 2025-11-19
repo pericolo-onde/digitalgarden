@@ -11,6 +11,10 @@ https://www.instagram.com/davidfirth66/#
 https://www.instagram.com/nikitadiakur/#
 ![Immagine 2025-09-15 204245.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20204245.png)
 
+# meowballz
+https://www.youtube.com/watch?v=xDexiO7Vnsc
+![patty pravo tutt'al più (12)chjbwdankmzòl.png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(12)chjbwdankmz%C3%B2l.png)
+
 ## wearedeadanimals
 https://www.instagram.com/wearedeadanimals/#
 ![Immagine 2025-09-15 224342.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20224342.png)
