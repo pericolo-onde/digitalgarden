@@ -171,4 +171,4 @@ https://www.youtube.com/watch?v=Bhj7hunyVjw
 
 # Steve Reich - Music for Mallet Instruments, Voices and Organ (1974)
 https://www.youtube.com/watch?v=pANyhXRsp2g&list=RDpANyhXRsp2g&start_radio=1
-![sddefaultuyguyiyujhghug.jpg](/img/user/sddefaultuyguyiyujhghug.jpg)
+![sddefaultuyguyiyujhghug.jpg](/img/user/Obsidian%20Vault/images/sddefaultuyguyiyujhghug.jpg)
