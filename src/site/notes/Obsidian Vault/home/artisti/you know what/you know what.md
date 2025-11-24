@@ -15,7 +15,7 @@ https://www.instagram.com/alessiowedgie#
 
 ## rrsorroww
 https://www.instagram.com/rrsorroww/#
-![[hang gyuahbjk 2.png\|hang gyuahbjk 2.png]]
+![hang gyuahbjk 3.png](/img/user/Obsidian%20Vault/images/hang%20gyuahbjk%203.png)
 
 ## candycoatedus
 https://www.instagram.com/candycoatedus#
@@ -31,7 +31,7 @@ https://www.instagram.com/unknownbound1492/#
 
 ## wetlook_cosplay_princess
 https://www.instagram.com/wetlook_cosplay_princess/#
-![[Immagine 2025-09-15 193654.png\|Immagine 2025-09-15 193654.png]]
+![Immagine 2025-09-15 193655.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20193655.png)
 
 ## straitjacketshop
 https://www.instagram.com/straitjacketshop/#
@@ -43,7 +43,7 @@ https://www.youtube.com/@amandag8258
 
 ## realpedalpumping
 https://www.instagram.com/realpedalpumping/#
-![[Immagine 2025-09-15 192035.png\|Immagine 2025-09-15 192035.png]]
+![Immagine 2025-09-15 192036.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20192036.png)
 
 ## sneaker__styler
 https://www.instagram.com/sneaker__styler/#
@@ -75,7 +75,7 @@ https://www.instagram.com/latexluke?igsh=ZHZvOGlqODFqMmds#
 
 ## nikkothemutt1
 https://www.instagram.com/nikkothemutt1/#
-![[Immagine 2025-09-26 001401 2.png\|Immagine 2025-09-26 001401 2.png]]
+![Immagine 2025-09-26 001401 3.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20001401%203.png)
 
 ## furrjoi001
 https://www.instagram.com/furrjoi001/#
@@ -91,7 +91,7 @@ https://www.instagram.com/rubberdragonch/#
 
 ## joeslilsimp
 https://www.instagram.com/joeslilsimp/#
-![[Immagine 2025-09-15 191710.png\|Immagine 2025-09-15 191710.png]]
+![Immagine 2025-09-15 191711.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20191711.png)
 
 ## taithinnn
 https://www.instagram.com/taithinnn/#
