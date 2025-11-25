@@ -8,7 +8,7 @@
 
 # Incoming and Unsorted Zines
 https://archive.org/details/zines_inbox
-![[Immagine 2025-11-04 234820.png\|Immagine 2025-11-04 234820.png]]
+![Immagine 2025-11-04 234821.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-04%20234821.png)
 
 # infinite books
 https://archive.org/details/texts
@@ -22,3 +22,6 @@ https://www.archivepdf.net/
 https://www.instagram.com/ebanbleechairs/#
 ![Immagine 2025-11-05 003434.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20003434.png)
 
+# scrobbles by DJ GUNBOUND
+https://www.youtube.com/@scrobblesbyDJGunbound/videos
+![Immagine ef3wgrhtgefwd2025-11-25 194514.png](/img/user/Immagine%20ef3wgrhtgefwd2025-11-25%20194514.png)

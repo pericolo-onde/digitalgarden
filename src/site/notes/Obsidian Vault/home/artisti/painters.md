@@ -214,3 +214,7 @@ https://amano-artwork.tumblr.com/
 
 # erotic scene pablo - Picasso
 ![restrictedbhnb.jpg](/img/user/Obsidian%20Vault/images/restrictedbhnb.jpg)
+
+## Shingo Tamagawa
+https://www.instagram.com/shingo_tamagawa/#
+![Immagine 202swdafegdrhftnjnrhgefw5-11-25 195309.jpg](/img/user/Immagine%20202swdafegdrhftnjnrhgefw5-11-25%20195309.jpg)

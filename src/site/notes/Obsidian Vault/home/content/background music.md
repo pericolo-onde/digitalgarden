@@ -6,6 +6,18 @@
 https://www.youtube.com/watch?v=ApnbymNz9dE&list=RDApnbymNz9dE&start_radio=1&t=60s
 ![w24egwbhgvewcwevwewgfrwrrrr.jpg](/img/user/Obsidian%20Vault/images/w24egwbhgvewcwevwewgfrwrrrr.jpg)
 
+# Perotin - Viderunt Omnes
+https://www.youtube.com/watch?v=3oaRM1uDsw8
+![Perotin_252143wfeghr1b.png](/img/user/Perotin_252143wfeghr1b.png)
+
+# Issam Hajali - Mouasalat Ila Jacad El Ard
+https://www.youtube.com/watch?v=8SKqeqURucE&t=10s
+![ergbthnjgefdwfqegrbfeds.jpg](/img/user/ergbthnjgefdwfqegrbfeds.jpg)
+
+# Oidupaa Vladimir Oiun - Divine Music From A Jail
+https://www.youtube.com/watch?v=pOAuR_UdA-U
+![a1942w3fegrhtgr3qw8374945_10.jpg](/img/user/a1942w3fegrhtgr3qw8374945_10.jpg)
+
 # SHOSTAKOVICH - Piano Trio No. 2 in E minor (Op. 67) 
 https://www.youtube.com/watch?v=os4N-dR7CuY
 ![maxresdefaultgeyixsunwpqaè.jpg](/img/user/Obsidian%20Vault/images/maxresdefaultgeyixsunwpqa%C3%A8.jpg)
@@ -172,3 +184,16 @@ https://www.youtube.com/watch?v=Bhj7hunyVjw
 # Steve Reich - Music for Mallet Instruments, Voices and Organ (1974)
 https://www.youtube.com/watch?v=pANyhXRsp2g&list=RDpANyhXRsp2g&start_radio=1
 ![sddefaultuyguyiyujhghug.jpg](/img/user/Obsidian%20Vault/images/sddefaultuyguyiyujhghug.jpg)
+
+# Giovanni Pierluigi da Palestrina - Missa Nigra sum
+https://www.youtube.com/watch?v=JImVQBHdF4w&t=68s
+![My0yNjQ1LmpwerbfgfewqadZWc.jpg](/img/user/My0yNjQ1LmpwerbfgfewqadZWc.jpg)
+
+# Paul McCandless - Hearsay (1988)
+https://www.youtube.com/watch?v=4R3_Dqq3Fys
+![250pxwf3egrhthgwfqd-Heresay_album.jpg](/img/user/250pxwf3egrhthgwfqd-Heresay_album.jpg)
+
+# Al Massrieen - Hatgeni Tani
+https://open.spotify.com/intl-it/album/66w1FzZmpsvcR5WjN7TxmU?si=9OIkygn1QTiz1_X_zK0nug
+![ab67616d00wfdwqqwfdwqdwqd00b2738611fc35dff9ef18.jpg](/img/user/ab67616d00wfdwqqwfdwqdwqd00b2738611fc35dff9ef18.jpg)
+
