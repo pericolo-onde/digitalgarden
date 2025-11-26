@@ -20,9 +20,8 @@
 
 [[Obsidian Vault/home/content/interviste\|interviste]]
 
-[[websites\|websites]]
+[[Obsidian Vault/home/content/websites\|websites]]
 
-[[Obsidian Vault/home/digital garden\|digital garden]]
 
 
 

@@ -9,4 +9,4 @@ https://archive.org/details/McGillLibrary-PN970_S5_A5_1865-1355/mode/1up
 
 # Kitum Cave
 https://mountelgonfoundation.org.uk/the-elephants/
-![Martin_HEewgrhjtRO.jpg](/img/user/Martin_HEewgrhjtRO.jpg)
+![Martin_HEewgrhjtRO.jpg](/img/user/Obsidian%20Vault/images/Martin_HEewgrhjtRO.jpg)

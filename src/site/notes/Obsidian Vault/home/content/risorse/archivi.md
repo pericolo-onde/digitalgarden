@@ -24,4 +24,4 @@ https://www.instagram.com/ebanbleechairs/#
 
 # scrobbles by DJ GUNBOUND
 https://www.youtube.com/@scrobblesbyDJGunbound/videos
-![Immagine ef3wgrhtgefwd2025-11-25 194514.png](/img/user/Immagine%20ef3wgrhtgefwd2025-11-25%20194514.png)
+![Immagine ef3wgrhtgefwd2025-11-25 194514.png](/img/user/Obsidian%20Vault/images/Immagine%20ef3wgrhtgefwd2025-11-25%20194514.png)
