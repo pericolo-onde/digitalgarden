@@ -68,6 +68,14 @@ https://www.instagram.com/codyedgewater/#)
 [Garth Greenan Gallery](https://www.garthgreenan.com/artists/melissa-cody/selected-works-old/undefined?view=thumbnails#2)
 ![image-2 2.png](/img/user/Obsidian%20Vault/images/image-2%202.png)
 
+# Haley Wood
+https://www.instagram.com/haleywoodtextiles?igsh=ejkxaml3MGZteGI0
+![Immagine 2025efgrdhftesar12-01 202232.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025efgrdhftesar12-01%20202232.jpg)
+
+# Nakahira Misako
+https://www.instagram.com/nakahira_misako/#
+![Immagine 2025-12WEGTRHTJHEGWFQ-01 230417.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-12WEGTRHTJHEGWFQ-01%20230417.jpg)
+
 ## wretched_flowers_
 https://www.instagram.com/wretched_flowers_/#
 ![image-3 1.png](/img/user/Obsidian%20Vault/images/image-3%201.png)
@@ -79,6 +87,10 @@ https://www.instagram.com/exteriormonologue/#
 ## victor_homenko
 https://www.instagram.com/victor_homenko/#
 ![image-4 1.png](/img/user/Obsidian%20Vault/images/image-4%201.png)
+
+# Laura Solar
+https://www.instagram.com/pottery_of_sol/
+![prbevfcdjqnatty pravo tutt'al più (14).png](/img/user/Obsidian%20Vault/images/prbevfcdjqnatty%20pravo%20tutt'al%20pi%C3%B9%20(14).png)
 
 ## shampoooty
 https://www.instagram.com/shampoooty/#
@@ -187,3 +199,15 @@ https://www.katharinagrosse.com/
 # Ugo La Pietra
 https://www.ugolapietra.com/
 ![vrepuned rvfiupbndes wvj.png](/img/user/Obsidian%20Vault/images/vrepuned%20rvfiupbndes%20wvj.png)
+
+# Amelia Cross
+https://www.instagram.com/amelia__cross/
+![Immagine 202qdwfeghr5-12-01 194424.jpg](/img/user/Obsidian%20Vault/images/Immagine%20202qdwfeghr5-12-01%20194424.jpg)
+
+# Karyn Nakamura
+https://www.instagram.com/frog_spit_simulation?igsh=YWE1czk0eGtsOXJk
+![Immagine 2025-12qwdfegfwrdqe-01 203210.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-12qwdfegfwrdqe-01%20203210.jpg)
+
+# Calaca Ceramics
+https://www.instagram.com/calacaceramics#
+![Immagine 2025qwdfregrhsdegbhntrtjy-12-01 234914-1.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025qwdfregrhsdegbhntrtjy-12-01%20234914-1.jpg)

@@ -12,7 +12,7 @@ https://www.instagram.com/solo_handmade_shoes/#
 
 ## kidslovegaite
 https://www.instagram.com/kidslovegaite/#
-![[Immagine 2025-09-14 165515cduisjygehxnmqiacecyjxmkcybnuqj.png\|Immagine 2025-09-14 165515cduisjygehxnmqiacecyjxmkcybnuqj.png]]
+![Immagine 2025-09-14 165515cduisjygehxnmqiacecyjxmkcybnuqj 2.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20165515cduisjygehxnmqiacecyjxmkcybnuqj%202.png)
 
 ## bodyamplificationdevices
 https://www.instagram.com/bodyamplificationdevices/#
@@ -33,3 +33,7 @@ https://www.instagram.com/kikkabo_nojima/#
 # Marugo
 https://www.tabis-online.jp/brand/marugo/?srsltid=AfmBOoqsWCXEeicPRYU-Yrds3oho2tD6w-o0Z426_bngPNmd8Mg2g1sz
 ![71Rp-5bzIML._AC_UY900vvvvv.jpg](/img/user/Obsidian%20Vault/images/71Rp-5bzIML._AC_UY900vvvvv.jpg)
+
+## sanax_slippers
+
+](https://www.instagram.com/sanax_slippers/#)![ImmagiEFWGRHTJYKne 2025-12-01 183837.jpg](/img/user/Obsidian%20Vault/images/ImmagiEFWGRHTJYKne%202025-12-01%20183837.jpg)

@@ -108,4 +108,7 @@ https://www.instagram.com/widemouh?igsh=MWZ0dXo2Ym5nOWdwcw%3D%3D#
 https://www.instagram.com/paul__plane?igsh=MWg2a3RudHAxMGNscw%3D%3D#
 ![Immagine 2025-09-26 234111.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-26%20234111.png)
 
+## noway_recordings
+https://www.instagram.com/noway_recordings/
+![Immagine 202saFDFBNGMH,5-12-01 224806.jpg](/img/user/Obsidian%20Vault/images/Immagine%20202saFDFBNGMH,5-12-01%20224806.jpg)
 

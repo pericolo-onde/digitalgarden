@@ -34,9 +34,17 @@ https://www.instagram.com/keikagami_/#
 https://www.instagram.com/p_____andrade/#
 ![Immagine 2025-09-14 182717.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182717.png)
 
+# Jillian Trujillo Hernandez
+https://www.instagram.com/swordbreakergarments/
+![Immagine 2025-1qwrfgefwqe2-01 203411-1.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-1qwrfgefwqe2-01%20203411-1.jpg)
+
 ## infimalega
 https://www.instagram.com/infimalega#
 ![Immagine 2025-09-15 202634.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20202634.png)
+
+## nilshauser
+https://www.instagram.com/nilshauser/#
+![patty pravo tutt'WEGRHTRGEQFal più (1).jpg](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'WEGRHTRGEQFal%20pi%C3%B9%20(1).jpg)
 
 ## ujeel1
 https://www.instagram.com/ujeel1/#
@@ -109,5 +117,10 @@ https://www.instagram.com/tidjjane/#
 https://www.instagram.com/norlha_atelier/#
 ![Immagine 2025-11-14 235550d3fw24egh5j3g2f1rtg4qf1rd2.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-14%20235550d3fw24egh5j3g2f1rtg4qf1rd2.png)
 
+# Nikolaj Gotthelf
+https://www.instagram.com/punktum.kommastreg/
+![Immagine 2025-12-0ESGRHTFNJYKU1 183429.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-12-0ESGRHTFNJYKU1%20183429.jpg)
 
-
+# Elena Dawson
+https://www.instagram.com/elenadawson.uk/#
+![Immagine 2025-1q2wdfre3g4rh5gweqf2-01 233749.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-1q2wdfre3g4rh5gweqf2-01%20233749.jpg)

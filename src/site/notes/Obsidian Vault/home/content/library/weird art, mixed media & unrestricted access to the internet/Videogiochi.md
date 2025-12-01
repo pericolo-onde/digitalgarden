@@ -2,6 +2,8 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/library/weird-art-mixed-media-and-unrestricted-access-to-the-internet/videogiochi/"}
 ---
 
+[[Obsidian Vault/home/content/screenshots/videogames\|videogames]]
+
 8:11
 Abscess
 Akemi-Tan

@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/screenshots/fashion/"}
 ---
 
+![Immagine 2025-12-qdwqqsddqdqq203750.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-12-qdwqqsddqdqq203750.jpg)
 ![IMG_2380.jpeg](/img/user/Obsidian%20Vault/images/IMG_2380.jpeg)![IMG_0258.png](/img/user/Obsidian%20Vault/images/IMG_0258.png)![Immagine 2025-11-11 223030.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-11%20223030.png)
 ![Immagine 2025-11-11 223014.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-11%20223014.png)
 ![IMG_0507.png](/img/user/Obsidian%20Vault/images/IMG_0507.png)

@@ -62,3 +62,7 @@ https://www.instagram.com/ahhh__asmr#
 # Jimmie Durham
 https://www.youtube.com/watch?v=6dFd5iNBj_c
 ![04_Jimmie-Durham-Smashing-2004-swdqefgrtnhjymebwqw.png](/img/user/Obsidian%20Vault/images/04_Jimmie-Durham-Smashing-2004-swdqefgrtnhjymebwqw.png)
+
+## 333_17_249_art3 (崔美譬)
+https://www.instagram.com/333_17_249_art3/reels/#
+![Immagine 2025-2dr3f2teg4h5j3gw2eq12-01 233915.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-2dr3f2teg4h5j3gw2eq12-01%20233915.jpg)

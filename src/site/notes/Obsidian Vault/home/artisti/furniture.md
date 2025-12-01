@@ -22,3 +22,10 @@ https://www.instagram.com/mk_forms/#
 https://www.instagram.com/alx_lntv/#
 ![Immagine 2025-11-05 003312.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-05%20003312.png)
 
+# Clémentine Long
+https://www.instagram.com/clementine___long/
+![patty pravo tutt'al più (13).png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(13).png)
+
+# builtforkeeps
+https://www.instagram.com/builtforkeeps/#
+![efgreqwefgfwvvecveevwevwve.jpg](/img/user/Obsidian%20Vault/images/efgreqwefgfwvvecveevwevwve.jpg)

@@ -2,13 +2,15 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/risorse/risorse/"}
 ---
 
-[[Obsidian Vault/home/content/risorse/3D nature data\|3D nature data]]
+[[Obsidian Vault/home/content/risorse/3D nature data and Museums\|3D nature data and Museums]]
 
 [[Obsidian Vault/home/content/risorse/archivi\|archivi]]
 
 [[Obsidian Vault/home/content/risorse/corsi online gratutiti\|corsi online gratutiti]]
 
-[[Obsidian Vault/home/content/library/masters\|masters]]
+[[Obsidian Vault/home/content/risorse/masters\|masters]]
+
+[[Obsidian Vault/home/content/risorse/masterclass\|masterclass]]
 
 [[Obsidian Vault/home/content/risorse/scientific documents AI\|scientific documents AI]]
 
@@ -41,6 +43,8 @@
 [[Obsidian Vault/home/content/risorse/imagefragmenter\|imagefragmenter]]
 
 [[Obsidian Vault/home/content/risorse/The Sound of Sorting\|The Sound of Sorting]]
+
+[[Obsidian Vault/home/content/risorse/anime sakuga shots\|anime sakuga shots]]
 
 
 

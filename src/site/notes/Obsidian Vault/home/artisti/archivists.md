@@ -115,6 +115,10 @@ https://www.instagram.com/guentherk?igsh=NGNjd2c5bm95enJy#
 https://www.instagram.com/hobby_dogging_heilbronn#
 ![Immagine 2025-11-12 224150grh.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20224150grh.png)
 
+# fast food legend
+https://www.instagram.com/fastfoodlegendofficial#
+![Immagine 2025-qdwfgehrtjn12-01 234643.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025-qdwfgehrtjn12-01%20234643.jpg)
 
-
-
+# lolcow maga boy
+https://www.instagram.com/lolcow_maga_boy#
+![Immagine 2025qwdfregrhtjy-12-01 234914.jpg](/img/user/Obsidian%20Vault/images/Immagine%202025qwdfregrhtjy-12-01%20234914.jpg)

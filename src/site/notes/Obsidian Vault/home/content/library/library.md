@@ -32,6 +32,9 @@
 
 [[Obsidian Vault/home/content/library/Files for RetroGameArtbooksAndIllustrations\|Files for RetroGameArtbooksAndIllustrations]]
 
+[[Obsidian Vault/home/content/library/Jodorowsky's Dune storyboard\|Jodorowsky's Dune storyboard]]
+
+[[Obsidian Vault/home/content/library/How to Gift Wrap\|How to Gift Wrap]]
 
 
 
