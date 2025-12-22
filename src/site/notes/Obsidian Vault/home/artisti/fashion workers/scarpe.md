@@ -35,5 +35,9 @@ https://www.tabis-online.jp/brand/marugo/?srsltid=AfmBOoqsWCXEeicPRYU-Yrds3oho2t
 ![71Rp-5bzIML._AC_UY900vvvvv.jpg](/img/user/Obsidian%20Vault/images/71Rp-5bzIML._AC_UY900vvvvv.jpg)
 
 ## sanax_slippers
+https://www.instagram.com/sanax_slippers/#
+![ImmagiEFWGRHTJYKne 2025-12-01 183837.jpg](/img/user/Obsidian%20Vault/images/ImmagiEFWGRHTJYKne%202025-12-01%20183837.jpg)
 
-](https://www.instagram.com/sanax_slippers/#)![ImmagiEFWGRHTJYKne 2025-12-01 183837.jpg](/img/user/Obsidian%20Vault/images/ImmagiEFWGRHTJYKne%202025-12-01%20183837.jpg)
+# Glerups
+https://www.glerups.com/collections/men
+![ENG-Featured-jul-2025.jpg](/img/user/ENG-Featured-jul-2025.jpg)

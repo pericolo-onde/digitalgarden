@@ -4,6 +4,8 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/borse\|borse]]
 
+[[Obsidian Vault/home/artisti/fashion workers/calzini\|calzini]]
+
 [[Obsidian Vault/home/artisti/fashion workers/camicie\|camicie]]
 
 [[Obsidian Vault/home/artisti/fashion workers/cappelli\|cappelli]]
