@@ -40,4 +40,4 @@ https://www.instagram.com/sanax_slippers/#
 
 # Glerups
 https://www.glerups.com/collections/men
-![ENG-Featured-jul-2025.jpg](/img/user/ENG-Featured-jul-2025.jpg)
+![ENG-Featured-jul-2025.jpg](/img/user/Obsidian%20Vault/images/ENG-Featured-jul-2025.jpg)

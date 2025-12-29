@@ -5,7 +5,7 @@
 
 ## takumi_ogata
 https://www.instagram.com/takumi_ogata/#)
-![[image-21 2.png\|image-21 2.png]]
+![image-21 3.png](/img/user/Obsidian%20Vault/images/image-21%203.png)
 
 ## yoshisodeoka
 https://www.instagram.com/yoshisodeoka/#

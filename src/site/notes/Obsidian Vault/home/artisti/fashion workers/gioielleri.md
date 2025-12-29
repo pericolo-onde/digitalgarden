@@ -16,4 +16,4 @@ https://www.instagram.com/jeanfrancoismimilla/#
 
 ## ursuuna.archive
 https://www.instagram.com/ursuuna.archive?igsh=MTJ0MHFvcDhmc2l5aQ%3D%3D#
-![[v dsweqaKUM67565 2.png\|v dsweqaKUM67565 2.png]]
+![v dsweqaKUM67565 3.png](/img/user/Obsidian%20Vault/images/v%20dsweqaKUM67565%203.png)

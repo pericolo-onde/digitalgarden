@@ -8,7 +8,7 @@
 
 [[Obsidian Vault/home/projects/maria\|maria]]
 
-[[Obsidian Vault/home/projects/mattonelle da nascondere\|mattonelle da nascondere]]
+[[Obsidian Vault/home/projects/mattonelle da nascondere/mattonelle da nascondere\|mattonelle da nascondere]]
 
 [[Obsidian Vault/home/projects/piccola pelle/piccola pelle\|piccola pelle]]
 
