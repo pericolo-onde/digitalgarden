@@ -10,6 +10,8 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/cappelli\|cappelli]]
 
+[[clericale\|clericale]]
+
 [[Obsidian Vault/home/artisti/fashion workers/corsetti\|corsetti]]
 
 [[Obsidian Vault/home/artisti/fashion workers/cravatte\|cravatte]]

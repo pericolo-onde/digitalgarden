@@ -127,3 +127,7 @@ https://www.tamersarchive.com/
 # saint greaver
 https://www.youtube.com/@saintsart/videos
 ![Immagine 20erwgewfefwwaqfe25-11-25 195129.jpg](/img/user/Obsidian%20Vault/images/Immagine%2020erwgewfefwwaqfe25-11-25%20195129.jpg)
+
+# Spritanium
+https://www.youtube.com/@Spritanium/videos
+![maxresdefasfgdhdddddult.jpg](/img/user/maxresdefasfgdhdddddult.jpg)

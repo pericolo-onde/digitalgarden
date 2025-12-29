@@ -38,3 +38,9 @@ https://www.instagram.com/sugiyamer#
 ## andychamberlainmusic (Andy Chamberlain)
 https://www.instagram.com/andychamberlainmusic/#
 ![Immagine 2025-11-07 005219.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20005219.png)
+
+  
+# Jdaie Lin (PiSugarStudio)
+https://youtube.com/@pisugarstudio?si=LSizwr3aYaNuskex
+![hqdeffgdbfffffdgfviugdsuihgdsuiault.jpg](/img/user/hqdeffgdbfffffdgfviugdsuihgdsuiault.jpg)
+
