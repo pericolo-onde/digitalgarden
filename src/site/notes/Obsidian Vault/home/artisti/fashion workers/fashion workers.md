@@ -29,11 +29,6 @@
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
 
-## keikagami_
-[[Obsidian Vault/home/artisti/vnapersona\|vnapersona]]
-https://www.instagram.com/keikagami_/#
-![Immagine 2025-09-14 181508.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181508.png)
-
 ## p___andrade
 https://www.instagram.com/p_____andrade/#
 ![Immagine 2025-09-14 182717.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20182717.png)

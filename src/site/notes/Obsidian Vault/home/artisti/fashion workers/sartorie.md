@@ -17,3 +17,8 @@ https://geoffreybsmall.net/
 ## nettynauta
 https://www.instagram.com/nettynauta/#
 ![Immagine 2025-09-14 172348.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172348.png)
+
+## keikagami_
+[[Obsidian Vault/home/artisti/vnapersona\|vnapersona]]
+https://www.instagram.com/keikagami_/#
+![Immagine 2025-09-14 181508.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181508.png)
