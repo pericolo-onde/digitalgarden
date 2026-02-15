@@ -45,7 +45,7 @@ https://youtu.be/4RDVUZTqmt8?si=9Eud7pktIfAa4pjm
 
 # سلوى القطريب - شوفي خلف البحر
 https://youtu.be/QPS28TCIG4s?si=yS5dsZ5wgJzg4Z2K
-![artworks-00004917525dssddd9-w9anzw-t50.jpg](/img/user/artworks-00004917525dssddd9-w9anzw-t50.jpg)
+![artworks-00004917525dssddd9-w9anzw-t50.jpg](/img/user/Obsidian%20Vault/images/artworks-00004917525dssddd9-w9anzw-t50.jpg)
 
 # Music To Become A Restful Cube To
 https://youtu.be/jXkATAvL49U?si=XeEBo83ofujBzU_p
@@ -203,4 +203,12 @@ https://open.spotify.com/intl-it/album/66w1FzZmpsvcR5WjN7TxmU?si=9OIkygn1QTiz1_X
 
 # Lester Young – The Complete 1936-1951 Small Group Sessions Vol. 5
 https://youtu.be/tiM3IL9uVfA?si=1ZbF03QGIxyx_nvo
-![61P761KlXoL._UF89sfd2erw3egh4,1000_QL80.jpg](/img/user/61P761KlXoL._UF89sfd2erw3egh4,1000_QL80.jpg)
+![61P761KlXoL._UF89sfd2erw3egh4,1000_QL80.jpg](/img/user/Obsidian%20Vault/images/61P761KlXoL._UF89sfd2erw3egh4,1000_QL80.jpg)
+
+# Hiroshi Yoshimura-Green
+https://youtu.be/D7aYjRl_6Zw?si=z9_VcK8P8TJE60Lv
+![Immagine 2026-0225q3e4yrut6-13 194132.jpg](/img/user/Immagine%202026-0225q3e4yrut6-13%20194132.jpg)
+
+# Sextet, by Steve Reich
+https://youtu.be/YgX85tZf1ts?si=QAUkz6dC_SIrlU7j
+![Immagine 2026-02-defsadgrh13 194601.jpg](/img/user/Immagine%202026-02-defsadgrh13%20194601.jpg)

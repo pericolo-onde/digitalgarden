@@ -28,6 +28,9 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
+[[uncinetto\|uncinetto]]
+
+
 
 ## p___andrade
 https://www.instagram.com/p_____andrade/#

@@ -30,7 +30,7 @@
 
 [[Obsidian Vault/home/artisti/programmers\|programmers]]
 
-[[Obsidian Vault/home/artisti/sculptors\|sculptors]]
+[[sculptors\|sculptors]]
 
 [[Obsidian Vault/home/artisti/tatuator\|tatuator]]
 

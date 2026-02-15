@@ -130,4 +130,4 @@ https://www.youtube.com/@saintsart/videos
 
 # Spritanium
 https://www.youtube.com/@Spritanium/videos
-![maxresdefasfgdhdddddult.jpg](/img/user/maxresdefasfgdhdddddult.jpg)
+![maxresdefasfgdhdddddult.jpg](/img/user/Obsidian%20Vault/images/maxresdefasfgdhdddddult.jpg)

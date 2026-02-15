@@ -12,16 +12,16 @@ https://www.instagram.com/dazy_chains/
 
 # Northern Watters Knitwear & Tartan Shop
 https://nwknitwear.com/collections/sweaters
-![Untitled-26_96dfegdrewwqqww6e920-ba36-4a01-a.jpg](/img/user/Untitled-26_96dfegdrewwqqww6e920-ba36-4a01-a.jpg)
+![Untitled-26_96dfegdrewwqqww6e920-ba36-4a01-a.jpg](/img/user/Obsidian%20Vault/images/Untitled-26_96dfegdrewwqqww6e920-ba36-4a01-a.jpg)
 
 # Drake's
 https://www.thearmoury.com/collections/knitwear
-![im2eqwrfegrhtgwfrqeagrfw1222222ages.jpg](/img/user/im2eqwrfegrhtgwfrqeagrfw1222222ages.jpg)
+![im2eqwrfegrhtgwfrqeagrfw1222222ages.jpg](/img/user/Obsidian%20Vault/images/im2eqwrfegrhtgwfrqeagrfw1222222ages.jpg)
 
 # Scott & Charters
 https://www.instagram.com/scottandchartersscotland/
-![Untitled design.jpg](/img/user/Untitled%20design.jpg)
+![Untitled design.jpg](/img/user/Obsidian%20Vault/images/Untitled%20design.jpg)
 
 # William Lockie
 https://www.gentlemansabatello.it/brand/14-william-lockie
-![WL-safdgfhhgmk,.jkòhgfhdsfaLogo.jpg](/img/user/WL-safdgfhhgmk,.jk%C3%B2hgfhdsfaLogo.jpg)
+![WL-safdgfhhgmk,.jkòhgfhdsfaLogo.jpg](/img/user/Obsidian%20Vault/images/WL-safdgfhhgmk,.jk%C3%B2hgfhdsfaLogo.jpg)

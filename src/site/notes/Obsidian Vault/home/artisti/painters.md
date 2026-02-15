@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/artisti/painters/","tags":["pittori","illustratori","disegnatori","disegni"]}
 ---
 
+[[morti pittori\|morti pittori]]
 
 # been_shill
 https://www.instagram.com/been_shill/#
@@ -71,10 +72,6 @@ https://www.instagram.com/running.standing.still/#
 ## khwampa
 https://www.instagram.com/khwampa/#
 ![Immagine 2025-09-14 164139.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164139.png)
-
-# Brent Wong
-https://www.brentwong-painter.com/
-![Immagine 2025-09-30 235750wddqq111.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-30%20235750wddqq111.png)
 
 ## davehollowellart
 https://www.instagram.com/davehollowellart/#
@@ -168,14 +165,6 @@ https://www.instagram.com/marktennantart/#
 https://www.instagram.com/paz_o_ur/#
 ![Immagine 2025-11-07 005009.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20005009.png)
 
-# Gertrude Abercrombie
-https://karmakarma.org/artists/gertrude-abercrombie/
-![wrvcewvceqcqcqqcqcqcc.png](/img/user/Obsidian%20Vault/images/wrvcewvceqcqcqqcqcqcc.png)
-
-# arnold böcklin
-https://archive.org/details/1280pxArnoldBcklinVillaByTheSeaGoogleArtProject/1047225212.jpg
-![fvewrwccacscxasasasas.png](/img/user/Obsidian%20Vault/images/fvewrwccacscxasasasas.png)
-
 ## MinJeong An
 https://www.instagram.com/minjeongart/#
 ![Immagine 2025-11-07 211227.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-07%20211227.png)
@@ -184,21 +173,9 @@ https://www.instagram.com/minjeongart/#
 https://www.smjny.com/louis-fratino
 ![Kissing my foot Louis Fratino.jpg](/img/user/Obsidian%20Vault/images/Kissing%20my%20foot%20Louis%20Fratino.jpg)
 
-# Gerolamo Induno
-https://soloarte.atelierdesarts.com/artisti/old/i/induno-gerolamo.html
-![patty pravo tutt'al più (3).png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(3).png)
-
-# Fernando Botero
-https://www.wikiart.org/en/fernando-botero
-![20130430-Botero-Abu-Ghraib-4ewrbtnmytnbwwbvw2ewv.png](/img/user/Obsidian%20Vault/images/20130430-Botero-Abu-Ghraib-4ewrbtnmytnbwwbvw2ewv.png)
-
 # Michaël Borremans
 https://www.instagram.com/borremansart/
 ![Immagine 2025-11-11 2308572edw3rgrftbng.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-11%202308572edw3rgrftbng.png)
-
-# Osmar Schindler
-https://www.artnet.com/artists/osmar-schindler/3
-![frdt4egybszunqms2f32i4v.png](/img/user/Obsidian%20Vault/images/frdt4egybszunqms2f32i4v.png)
 
 # Rafe15
 https://www.deviantart.com/rafe15
@@ -212,13 +189,19 @@ https://www.instagram.com/__digidog__#
 https://amano-artwork.tumblr.com/
 ![patty pravo tutt'al più (9)njghvfcdxszert.png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(9)njghvfcdxszert.png)
 
-# erotic scene pablo - Picasso
-![restrictedbhnb.jpg](/img/user/Obsidian%20Vault/images/restrictedbhnb.jpg)
-
 ## Shingo Tamagawa
 https://www.instagram.com/shingo_tamagawa/#
 ![Immagine 202swdafegdrhftnjnrhgefw5-11-25 195309.jpg](/img/user/Obsidian%20Vault/images/Immagine%20202swdafegdrhftnjnrhgefw5-11-25%20195309.jpg)
 
-# Theodor Kittelsen
-https://www.wikiart.org/en/theodor-severin-kittelsen
-![fewuefuihwf9upi2w1908298387387329qqw.jpg](/img/user/Obsidian%20Vault/images/fewuefuihwf9upi2w1908298387387329qqw.jpg)
+## solomonvoneichmann - BOWEN
+https://www.instagram.com/solomonvoneichmann#
+![qwertyutrerwe.jpg](/img/user/qwertyutrerwe.jpg)
+
+## Ebilehita Iyasele
+https://www.instagram.com/ebilehita._#
+![Immagine 20qwertyu26-02-15 192040.jpg](/img/user/Immagine%2020qwertyu26-02-15%20192040.jpg)
+
+## 9liccc0
+https://www.instagram.com/9liccc0#
+![patty pravo tutt'al più (4).jpg](/img/user/patty%20pravo%20tutt'al%20pi%C3%B9%20(4).jpg)
+

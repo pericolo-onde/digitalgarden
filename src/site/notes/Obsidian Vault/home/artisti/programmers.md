@@ -42,5 +42,5 @@ https://www.instagram.com/andychamberlainmusic/#
   
 # Jdaie Lin (PiSugarStudio)
 https://youtube.com/@pisugarstudio?si=LSizwr3aYaNuskex
-![hqdeffgdbfffffdgfviugdsuihgdsuiault.jpg](/img/user/hqdeffgdbfffffdgfviugdsuihgdsuiault.jpg)
+![hqdeffgdbfffffdgfviugdsuihgdsuiault.jpg](/img/user/Obsidian%20Vault/images/hqdeffgdbfffffdgfviugdsuihgdsuiault.jpg)
 

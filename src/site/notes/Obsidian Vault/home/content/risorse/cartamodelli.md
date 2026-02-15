@@ -15,3 +15,5 @@ https://so-sew-easy.com/
 https://patronesgratis.es/
 
 https://gentlelivingshop.org/2-seam-tshirt-sewing-guide.html#download
+
+https://youtu.be/IH1UAItdRlM?si=5qMnW-7b9pnw_N1I

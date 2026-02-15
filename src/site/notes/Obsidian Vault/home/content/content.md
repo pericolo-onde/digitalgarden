@@ -20,6 +20,8 @@
 
 [[Obsidian Vault/home/content/interviste\|interviste]]
 
+[[Obsidian Vault/home/content/risorse/suoni\|suoni]]
+
 [[Obsidian Vault/home/content/websites\|websites]]
 
 

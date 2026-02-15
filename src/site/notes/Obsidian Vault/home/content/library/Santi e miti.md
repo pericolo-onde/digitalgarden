@@ -23,3 +23,4 @@ La leggenda di **San Dionigi** (o Saint Denis), patrono di Parigi, narra che, d
 
 ![s._antonio_-particolare_-iconaererrevv.png](/img/user/Obsidian%20Vault/images/s._antonio_-particolare_-iconaererrevv.png)
 Sant'Antonio è un santo molto popolare con diversi patronati, ma se ci si riferisce a **Sant'Antonio da Padova**, è noto come patrono degli affamati, dei poveri, delle cause impossibili, degli oggetti smarriti, dei bambini, dei fidanzati e di chi cerca il matrimonio. Per contrapposizione, Sant'Antonio Abate è il protettore degli animali e dei contadini. 
+![paperdollpope.jpg](/img/user/paperdollpope.jpg)

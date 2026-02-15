@@ -11,7 +11,7 @@ https://www.youtube.com/@Fashion_Neurosis/videos
 
 # Heavenly costumes & draperies: Fra Angelico’s painted textiles (Roberta Orsi Landini)
 https://youtu.be/VWwBrBdmjWE?si=pwnegNU4Wcj4TEOu
-![maxredc43ti621s8nqisdefault.jpg](/img/user/maxredc43ti621s8nqisdefault.jpg)
+![maxredc43ti621s8nqisdefault.jpg](/img/user/Obsidian%20Vault/images/maxredc43ti621s8nqisdefault.jpg)
 
 # Middlebrow Podcast
 https://www.youtube.com/watch?v=ViL2cTUm2ZE
@@ -27,4 +27,4 @@ https://www.youtube.com/watch?v=lVEdQbUmcM8
 
 # Terrace Martin: Do’s & Don’ts for Musicians
 https://youtu.be/DwPIodrmSOU?si=UvARFsPpawfYHqrY
-![terracemartin_23fr333335050callout.jpg](/img/user/terracemartin_23fr333335050callout.jpg)
+![terracemartin_23fr333335050callout.jpg](/img/user/Obsidian%20Vault/images/terracemartin_23fr333335050callout.jpg)

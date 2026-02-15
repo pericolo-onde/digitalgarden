@@ -9,7 +9,7 @@ https://www.instagram.com/gretifacose#
 
 ## ir.eye.is_lab
 https://www.instagram.com/ir.eye.is_lab#
-![[Immagine 2025-10-01 234215.png\|Immagine 2025-10-01 234215.png]]
+![Immagine 2025-10-01 234216.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-01%20234216.png)
 
 ## solandme_
 https://www.instagram.com/solandme_#
@@ -39,4 +39,6 @@ https://www.instagram.com/lunadendron?igsh=MWNyZ3F6M3Jvd2Z4YQ%3D%3D#
 https://www.instagram.com/_lavec/#
 ![Immagine 2025-11-12 224052.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20224052.png)
 
-
+## corey_alston_sweetgrassbasket
+https://www.instagram.com/corey_alston_sweetgrassbasket#
+![Immagine 2026-4t4t4t4t4t4t4t-13 204513.jpg](/img/user/Immagine%202026-4t4t4t4t4t4t4t-13%20204513.jpg)
