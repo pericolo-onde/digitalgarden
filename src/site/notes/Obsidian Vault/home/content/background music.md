@@ -207,8 +207,16 @@ https://youtu.be/tiM3IL9uVfA?si=1ZbF03QGIxyx_nvo
 
 # Hiroshi Yoshimura-Green
 https://youtu.be/D7aYjRl_6Zw?si=z9_VcK8P8TJE60Lv
-![Immagine 2026-0225q3e4yrut6-13 194132.jpg](/img/user/Immagine%202026-0225q3e4yrut6-13%20194132.jpg)
+![Immagine 2026-0225q3e4yrut6-13 194132.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-0225q3e4yrut6-13%20194132.jpg)
 
 # Sextet, by Steve Reich
 https://youtu.be/YgX85tZf1ts?si=QAUkz6dC_SIrlU7j
-![Immagine 2026-02-defsadgrh13 194601.jpg](/img/user/Immagine%202026-02-defsadgrh13%20194601.jpg)
+![Immagine 2026-02-defsadgrh13 194601.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-defsadgrh13%20194601.jpg)
+
+# Nikolai Kapustin - Eight Concert Etudes
+https://youtu.be/RrpjWM8JT7k?si=C6ZWjPR-0951Ib3g
+![Immagine 2026-02-22 qwerty180704.jpg](/img/user/Immagine%202026-02-22%20qwerty180704.jpg)
+
+# Coltrane - Live At Birdland
+https://youtu.be/6C7G3Bk_bbg?si=2_gpjhjh8mJgBot8
+![61wRgiISdAL._UF10wertghfrffr00,1000_QL80.jpg](/img/user/61wRgiISdAL._UF10wertghfrffr00,1000_QL80.jpg)

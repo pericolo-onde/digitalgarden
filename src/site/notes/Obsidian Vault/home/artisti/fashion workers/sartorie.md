@@ -19,6 +19,10 @@ https://www.instagram.com/nettynauta/#
 ![Immagine 2025-09-14 172348.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20172348.png)
 
 ## keikagami_
-[[Obsidian Vault/home/artisti/vnapersona\|vnapersona]]
+[[Obsidian Vault/home/artisti/fashion workers/vnapersona\|vnapersona]]
 https://www.instagram.com/keikagami_/#
 ![Immagine 2025-09-14 181508.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20181508.png)
+
+## faber_fab (Fabio Lo Piparo)
+https://www.instagram.com/faber_fab#
+![Immagine 2026-02-22wergt 202925.jpg](/img/user/Immagine%202026-02-22wergt%20202925.jpg)

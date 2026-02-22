@@ -29,7 +29,7 @@ https://www.instagram.com/missing0714/#
 
 ## frightenedsheep25937582
 https://www.instagram.com/frightenedsheep25937582/#
-![[Immagine 2025-09-14 173736.png\|Immagine 2025-09-14 173736.png]]
+![Immagine 2025-09-14 173737.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20173737.png)
 
 ## w0w_ma0
 https://www.instagram.com/w0w_ma0/#
@@ -65,7 +65,7 @@ https://youtu.be/derc1eRZX1I?si=S9yl3jWxPcZE7Nyz
 
 # Nobey One
 https://www.youtube.com/@nobeyone/videos
-![[3Qkt3g 2.png\|3Qkt3g 2.png]]
+![3Qkt3g 3.png](/img/user/Obsidian%20Vault/images/3Qkt3g%203.png)
 
 # 蔡曉檞
 https://www.youtube.com/@%E8%94%A1%E6%9B%89%E6%AA%9E
@@ -117,7 +117,7 @@ https://www.instagram.com/skeeter.mcbeaver/#
 
 ## shitpostcentral67
 https://www.instagram.com/shitpostcentral67/#
-![[Immagine 2025-11-12 223756eer 2.png\|Immagine 2025-11-12 223756eer 2.png]]
+![Immagine 2025-11-12 223756eer 3.png](/img/user/Obsidian%20Vault/images/Immagine%202025-11-12%20223756eer%203.png)
 
 ## nemplyd
 https://www.instagram.com/nemplyd/#
@@ -127,4 +127,14 @@ https://www.instagram.com/nemplyd/#
 https://www.instagram.com/epicestblorhever?igsh=MXBoc3dqNnk4ejkyaQ%3D%3D#
 ![Immagine 2QWDFREGRHGWAQ025-12-01 231241.jpg](/img/user/Obsidian%20Vault/images/Immagine%202QWDFREGRHGWAQ025-12-01%20231241.jpg)
 
+## minesap771
+https://www.instagram.com/minesap771/#
+![Immagine 2026-02-22wertyu174238.jpg](/img/user/Immagine%202026-02-22wertyu174238.jpg)
 
+## hyungbinjyeokqlabasterjinmar
+https://www.instagram.com/hyungbinjyeokqlabasterjinmar/#
+![Immagine 2026q2w3e4r5ty-02-22 174333.jpg](/img/user/Immagine%202026q2w3e4r5ty-02-22%20174333.jpg)
+
+## faristar.tv
+https://www.instagram.com/faristar.tv/#
+![Immagine 2026-we34r5th02-22 192159.jpg](/img/user/Immagine%202026-we34r5th02-22%20192159.jpg)

@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/obsidian-vault/home/content/screenshots/libri/","tags":["books","book"]}
 ---
 
+![91zEsyCQSgL._AC_UF1000,1000_QL80.jpg](/img/user/91zEsyCQSgL._AC_UF1000,1000_QL80.jpg)
 ![CMRII_Cover-704x1024dvsfb.png](/img/user/Obsidian%20Vault/images/CMRII_Cover-704x1024dvsfb.png)
 ![WhatsApp Image 2025-11-14 at 3.36.25 PM.jpeg](/img/user/Obsidian%20Vault/images/WhatsApp%20Image%202025-11-14%20at%203.36.25%20PM.jpeg)
 ![61myN58kxJL._AC_UF1000,1000_QL80.png](/img/user/Obsidian%20Vault/images/61myN58kxJL._AC_UF1000,1000_QL80.png)

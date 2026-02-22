@@ -17,3 +17,7 @@ https://www.instagram.com/jeanfrancoismimilla/#
 ## ursuuna.archive
 https://www.instagram.com/ursuuna.archive?igsh=MTJ0MHFvcDhmc2l5aQ%3D%3D#
 ![v dsweqaKUM67565 3.png](/img/user/Obsidian%20Vault/images/v%20dsweqaKUM67565%203.png)
+
+## poppylangridgejewellery
+https://www.instagram.com/poppylangridgejewellery#
+![Immagine wdefrgterthyjhjy2026-02-22 192808.jpg](/img/user/Immagine%20wdefrgterthyjhjy2026-02-22%20192808.jpg)

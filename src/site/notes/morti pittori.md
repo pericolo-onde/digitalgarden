@@ -4,7 +4,7 @@
 
 # Marion Adnams
 https://www.wikiart.org/en/marion-adnams
-![2vuysd2fsqvgbydw21qbsu.jpg](/img/user/2vuysd2fsqvgbydw21qbsu.jpg)
+![2vuysd2fsqvgbydw21qbsu.jpg](/img/user/Obsidian%20Vault/images/2vuysd2fsqvgbydw21qbsu.jpg)
 
 # Brent Wong
 https://www.brentwong-painter.com/
@@ -39,4 +39,12 @@ https://www.wikiart.org/en/theodor-severin-kittelsen
 
 # Paul Laffoley
 https://www.sensesatlas.com/paul-laffoley/
-![patty pravo tutt'al più (5).jpg](/img/user/patty%20pravo%20tutt'al%20pi%C3%B9%20(5).jpg)
+![patty pravo tutt'al più (5).jpg](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(5).jpg)
+
+# Remedios Varo
+https://www.wikiart.org/en/remedios-varo
+![f2e3gyh32ewdg1w32912912892.jpg](/img/user/f2e3gyh32ewdg1w32912912892.jpg)
+
+# Kay Nielsen
+https://www.wikiart.org/en/kay-nielsen
+![gvyufercwhxwx.jpg](/img/user/gvyufercwhxwx.jpg)

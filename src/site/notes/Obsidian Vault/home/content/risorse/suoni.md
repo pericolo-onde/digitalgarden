@@ -8,4 +8,4 @@ https://typatone.com/
 
 # junehunterimages
 https://www.instagram.com/p/DRkP25-jz-Y/
-![Immagine 2026-02-qwertghy15 193754.jpg](/img/user/Immagine%202026-02-qwertghy15%20193754.jpg)
+![Immagine 2026-02-qwertghy15 193754.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-qwertghy15%20193754.jpg)

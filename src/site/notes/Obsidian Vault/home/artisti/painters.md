@@ -195,13 +195,20 @@ https://www.instagram.com/shingo_tamagawa/#
 
 ## solomonvoneichmann - BOWEN
 https://www.instagram.com/solomonvoneichmann#
-![qwertyutrerwe.jpg](/img/user/qwertyutrerwe.jpg)
+![qwertyutrerwe.jpg](/img/user/Obsidian%20Vault/images/qwertyutrerwe.jpg)
 
 ## Ebilehita Iyasele
 https://www.instagram.com/ebilehita._#
-![Immagine 20qwertyu26-02-15 192040.jpg](/img/user/Immagine%2020qwertyu26-02-15%20192040.jpg)
+![Immagine 20qwertyu26-02-15 192040.jpg](/img/user/Obsidian%20Vault/images/Immagine%2020qwertyu26-02-15%20192040.jpg)
 
 ## 9liccc0
 https://www.instagram.com/9liccc0#
-![patty pravo tutt'al più (4).jpg](/img/user/patty%20pravo%20tutt'al%20pi%C3%B9%20(4).jpg)
+![patty pravo tutt'al più (4).jpg](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(4).jpg)
 
+## pea_artsoup (Elise Caddick)
+https://www.instagram.com/pea_artsoup/#
+![Immagine 2026-02-w23e4rtyui22 173438-1.jpg](/img/user/Immagine%202026-02-w23e4rtyui22%20173438-1.jpg)
+
+## Luca di Pace
+https://www.instagram.com/_sololuca/#
+![ryeuwhidqsok.jpg](/img/user/ryeuwhidqsok.jpg)

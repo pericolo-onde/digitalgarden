@@ -114,4 +114,4 @@ https://www.instagram.com/noway_recordings/
 
 ## cavecanems
 https://www.instagram.com/cavecanems/#
-![Immagine 22w3e4r5tyi67u026-02-13 195858.jpg](/img/user/Immagine%2022w3e4r5tyi67u026-02-13%20195858.jpg)
+![Immagine 22w3e4r5tyi67u026-02-13 195858.jpg](/img/user/Obsidian%20Vault/images/Immagine%2022w3e4r5tyi67u026-02-13%20195858.jpg)
