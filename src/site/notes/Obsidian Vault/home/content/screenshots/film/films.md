@@ -7,6 +7,7 @@
 
 ![Immagine 2025-10-30 003719.png](/img/user/Obsidian%20Vault/images/Immagine%202025-10-30%20003719.png)
 ![MV5BZjJkZjNlOqwegrGQtMWQ3ZS00MWFlLTlh.jpg](/img/user/MV5BZjJkZjNlOqwegrGQtMWQ3ZS00MWFlLTlh.jpg)
+![b880ec1e2a7b00d46974cf40a26a7138.jpg](/img/user/b880ec1e2a7b00d46974cf40a26a7138.jpg)
 ![ems.cHJkLWVtcy1hcrfytrtudrxucytrtc3NldHMvbW92aWVz.jpg](/img/user/Obsidian%20Vault/images/ems.cHJkLWVtcy1hcrfytrtudrxucytrtc3NldHMvbW92aWVz.jpg)
 ![MV5BZWU0ZTA5M2UtNGM2Ny00NjMxLWFi.jpg](/img/user/Obsidian%20Vault/images/MV5BZWU0ZTA5M2UtNGM2Ny00NjMxLWFi.jpg)
 ![41ioDK8g8fL._AC_UF8REBGHTJK94,1000_QL80.jpg](/img/user/Obsidian%20Vault/images/41ioDK8g8fL._AC_UF8REBGHTJK94,1000_QL80.jpg)
