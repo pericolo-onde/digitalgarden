@@ -9,5 +9,5 @@ https://www.instagram.com/vvaiser_/#
 
 ## lostkidnoreward
 https://www.instagram.com/lostkidnoreward/#
-![[Immagine 2025-09-14 164918.png\|Immagine 2025-09-14 164918.png]]
+![Immagine 2025-09-14 164919.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-14%20164919.png)
 

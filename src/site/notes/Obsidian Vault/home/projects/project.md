@@ -17,3 +17,5 @@
 [[Obsidian Vault/home/projects/scritture\|scritture]]
 
 [[Obsidian Vault/home/projects/stickers\|stickers]]
+
+[[Obsidian Vault/home/projects/HOLO/HOLO\|HOLO]]
