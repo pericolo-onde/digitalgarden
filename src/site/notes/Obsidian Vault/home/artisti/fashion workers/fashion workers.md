@@ -10,7 +10,7 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/cappelli\|cappelli]]
 
-[[clericale\|clericale]]
+[[Obsidian Vault/home/artisti/fashion workers/clericale\|clericale]]
 
 [[Obsidian Vault/home/artisti/fashion workers/corsetti\|corsetti]]
 
@@ -28,7 +28,7 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/scarpe\|scarpe]]
 
-[[uncinetto\|uncinetto]]
+[[Obsidian Vault/home/artisti/fashion workers/uncinetto\|uncinetto]]
 
 
 
@@ -129,13 +129,13 @@ https://www.instagram.com/elenadawson.uk/#
 
 ## nilshauser (HAUSEHAUSER)
 https://www.instagram.com/nilshauser/#
-![Immagine 2026-02-22 qasdfghj171740.jpg](/img/user/Immagine%202026-02-22%20qasdfghj171740.jpg)
+![Immagine 2026-02-22 qasdfghj171740.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-22%20qasdfghj171740.jpg)
 
 ## arbocar
 https://www.instagram.com/arbocar#
-![Immagine w3e45rty7u2026-02-22 182606.jpg](/img/user/Immagine%20w3e45rty7u2026-02-22%20182606.jpg)
+![Immagine w3e45rty7u2026-02-22 182606.jpg](/img/user/Obsidian%20Vault/images/Immagine%20w3e45rty7u2026-02-22%20182606.jpg)
 
 ## glumkimberly
 https://www.instagram.com/glumkimberly#
-![Immagine 2026-02fdsfxghy-22 182722.jpg](/img/user/Immagine%202026-02fdsfxghy-22%20182722.jpg)
+![Immagine 2026-02fdsfxghy-22 182722.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02fdsfxghy-22%20182722.jpg)
 

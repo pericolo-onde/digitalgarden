@@ -218,12 +218,12 @@ https://www.instagram.com/fluff.faun/#
 
 ## 333_17_249_art3 (崔美譬)
 https://www.instagram.com/333_17_249_art3/reels/#
-![Immagine 2qwerty026-02-22 183237.jpg](/img/user/Immagine%202qwerty026-02-22%20183237.jpg)
+![Immagine 2qwerty026-02-22 183237.jpg](/img/user/Obsidian%20Vault/images/Immagine%202qwerty026-02-22%20183237.jpg)
 
 # Christophe Coppens
 https://www.christophecoppens.com/
-![eyfweygwyuw.jpg](/img/user/eyfweygwyuw.jpg)
+![eyfweygwyuw.jpg](/img/user/Obsidian%20Vault/images/eyfweygwyuw.jpg)
 
 ## eskiljansson.konst
 https://www.instagram.com/eskiljansson.konst#
-![Immagine 20e4ryh5t26-02-22 201635.jpg](/img/user/Immagine%2020e4ryh5t26-02-22%20201635.jpg)
+![Immagine 20e4ryh5t26-02-22 201635.jpg](/img/user/Obsidian%20Vault/images/Immagine%2020e4ryh5t26-02-22%20201635.jpg)

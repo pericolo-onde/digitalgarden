@@ -9,7 +9,7 @@ https://www.instagram.com/gretifacose#
 
 ## magdagordon (Magdalena Julia Gordon)
 https://www.instagram.com/magdagordon/#
-![patty pravo tutt'al più (15).png](/img/user/patty%20pravo%20tutt'al%20pi%C3%B9%20(15).png)
+![patty pravo tutt'al più (15).png](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'al%20pi%C3%B9%20(15).png)
 
 ## ir.eye.is_lab
 https://www.instagram.com/ir.eye.is_lab#
@@ -49,10 +49,10 @@ https://www.instagram.com/corey_alston_sweetgrassbasket#
 
 ## willowoakrd (Paul Reamey)
 https://www.instagram.com/willowoakrd#
-![Immagine 2026-we3rty02-22 173619.jpg](/img/user/Immagine%202026-we3rty02-22%20173619.jpg)
+![Immagine 2026-we3rty02-22 173619.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-we3rty02-22%20173619.jpg)
 
 [
 
 ## kitpaulson (Kit Paulson)
 https://www.instagram.com/kitpaulson#
-![Immaginewsertyh 2026-02-22 173929.jpg](/img/user/Immaginewsertyh%202026-02-22%20173929.jpg)
+![Immaginewsertyh 2026-02-22 173929.jpg](/img/user/Obsidian%20Vault/images/Immaginewsertyh%202026-02-22%20173929.jpg)

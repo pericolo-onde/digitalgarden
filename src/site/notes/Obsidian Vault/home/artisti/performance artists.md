@@ -9,7 +9,7 @@ https://www.instagram.com/madamehoriente/#
 
 ## latuaamicadelcuore
 https://www.instagram.com/latuaamicadelcuore#
-![Immagine 202qwertyh6-02-22 171828.jpg](/img/user/Immagine%20202qwertyh6-02-22%20171828.jpg)
+![Immagine 202qwertyh6-02-22 171828.jpg](/img/user/Obsidian%20Vault/images/Immagine%20202qwertyh6-02-22%20171828.jpg)
 
 ## saeborg_latex
 https://www.instagram.com/saeborg_latex/#

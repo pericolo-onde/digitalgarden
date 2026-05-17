@@ -31,7 +31,7 @@ https://www.instagram.com/unknownbound1492/#
 
 ## kigluka
 https://www.instagram.com/kigluka/#
-![Immagine 2026-02-22werty 201547.jpg](/img/user/Immagine%202026-02-22werty%20201547.jpg)
+![Immagine 2026-02-22werty 201547.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-22werty%20201547.jpg)
 
 ## wetlook_cosplay_princess
 https://www.instagram.com/wetlook_cosplay_princess/#
@@ -131,7 +131,7 @@ https://www.instagram.com/santiago_looner/#
 
 ## cukinfluff
 https://www.instagram.com/cukinfluff/#
-![Immagine 2026-02-werty22 201314.jpg](/img/user/Immagine%202026-02-werty22%20201314.jpg)
+![Immagine 2026-02-werty22 201314.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-werty22%20201314.jpg)
 
 ## princesskaykay93
 https://www.instagram.com/princesskaykay93/#
@@ -182,4 +182,4 @@ https://www.instagram.com/devlockdadragon/#
 
 ## pumpland
 https://www.instagram.com/pumpland01/#
-![Immagine 2026swerty-02-22 185859.jpg](/img/user/Immagine%202026swerty-02-22%20185859.jpg)
+![Immagine 2026swerty-02-22 185859.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026swerty-02-22%20185859.jpg)

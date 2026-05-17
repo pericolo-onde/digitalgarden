@@ -25,4 +25,4 @@ https://www.instagram.com/keikagami_/#
 
 ## faber_fab (Fabio Lo Piparo)
 https://www.instagram.com/faber_fab#
-![Immagine 2026-02-22wergt 202925.jpg](/img/user/Immagine%202026-02-22wergt%20202925.jpg)
+![Immagine 2026-02-22wergt 202925.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-22wergt%20202925.jpg)

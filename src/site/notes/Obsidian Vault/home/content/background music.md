@@ -6,6 +6,10 @@
 https://www.youtube.com/watch?v=ApnbymNz9dE&list=RDApnbymNz9dE&start_radio=1&t=60s
 ![w24egwbhgvewcwevwewgfrwrrrr.jpg](/img/user/Obsidian%20Vault/images/w24egwbhgvewcwevwewgfrwrrrr.jpg)
 
+# Orange Lounge
+https://youtu.be/Qh3aHmOeeZY?si=YXOb7orzMOuHCxYC
+![efbi hewrviubw2e3fu839832893dbuxbb.jpg](/img/user/Obsidian%20Vault/images/efbi%20hewrviubw2e3fu839832893dbuxbb.jpg)
+
 # Perotin - Viderunt Omnes
 https://www.youtube.com/watch?v=3oaRM1uDsw8
 ![Perotin_252143wfeghr1b.png](/img/user/Obsidian%20Vault/images/Perotin_252143wfeghr1b.png)
@@ -215,8 +219,8 @@ https://youtu.be/YgX85tZf1ts?si=QAUkz6dC_SIrlU7j
 
 # Nikolai Kapustin - Eight Concert Etudes
 https://youtu.be/RrpjWM8JT7k?si=C6ZWjPR-0951Ib3g
-![Immagine 2026-02-22 qwerty180704.jpg](/img/user/Immagine%202026-02-22%20qwerty180704.jpg)
+![Immagine 2026-02-22 qwerty180704.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-22%20qwerty180704.jpg)
 
 # Coltrane - Live At Birdland
 https://youtu.be/6C7G3Bk_bbg?si=2_gpjhjh8mJgBot8
-![61wRgiISdAL._UF10wertghfrffr00,1000_QL80.jpg](/img/user/61wRgiISdAL._UF10wertghfrffr00,1000_QL80.jpg)
+![61wRgiISdAL._UF10wertghfrffr00,1000_QL80.jpg](/img/user/Obsidian%20Vault/images/61wRgiISdAL._UF10wertghfrffr00,1000_QL80.jpg)

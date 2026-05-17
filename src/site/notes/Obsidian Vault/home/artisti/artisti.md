@@ -4,7 +4,7 @@
 
 [[Obsidian Vault/home/artisti/ai\|ai]]
 
-[[animator\|animator]]
+[[Obsidian Vault/home/artisti/animator\|animator]]
 
 [[Obsidian Vault/home/artisti/architetti\|architetti]]
 
@@ -22,7 +22,7 @@
 
 [[Obsidian Vault/home/artisti/memer\|memer]]
 
-[[Obsidian Vault/home/artisti/painters\|painters]]
+[[Obsidian Vault/home/artisti/painters/painters\|painters]]
 
 [[Obsidian Vault/home/artisti/performance artists\|performance artists]]
 

@@ -1,0 +1,5 @@
+---
+{"dg-publish":true,"permalink":"/obsidian-vault/home/content/musei/artissima/artissima-2024/"}
+---
+
+![IMG_0316.jpeg](/img/user/Obsidian%20Vault/images/IMG_0316.jpeg)![IMG_0317.jpeg](/img/user/Obsidian%20Vault/images/IMG_0317.jpeg)![IMG_0319.jpeg](/img/user/Obsidian%20Vault/images/IMG_0319.jpeg)![IMG_0320.jpeg](/img/user/Obsidian%20Vault/images/IMG_0320.jpeg)![IMG_0329.jpeg](/img/user/Obsidian%20Vault/images/IMG_0329.jpeg)![IMG_0321.jpeg](/img/user/Obsidian%20Vault/images/IMG_0321.jpeg)![IMG_0324.jpeg](/img/user/Obsidian%20Vault/images/IMG_0324.jpeg)![IMG_0326.jpeg](/img/user/Obsidian%20Vault/images/IMG_0326.jpeg)![IMG_0330.jpeg](/img/user/Obsidian%20Vault/images/IMG_0330.jpeg)![IMG_0331.jpeg](/img/user/Obsidian%20Vault/images/IMG_0331.jpeg)![IMG_0332.jpeg](/img/user/Obsidian%20Vault/images/IMG_0332.jpeg)![0EFED4A5-3A34-4CDC-9783-345543F3A4F2.jpg](/img/user/Obsidian%20Vault/images/0EFED4A5-3A34-4CDC-9783-345543F3A4F2.jpg)![IMG_0334.jpeg](/img/user/Obsidian%20Vault/images/IMG_0334.jpeg)

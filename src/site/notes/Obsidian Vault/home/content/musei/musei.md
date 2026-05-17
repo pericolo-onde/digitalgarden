@@ -4,13 +4,13 @@
 
 [[Obsidian Vault/home/content/musei/Museo e Real Bosco di Capodimonte\|Museo e Real Bosco di Capodimonte]]
 
-[[Obsidian Vault/home/content/musei/artissima\|artissima]]
+[[Obsidian Vault/home/content/musei/artissima/artissima\|artissima]]
 
 [[Obsidian Vault/home/content/musei/Centro di Fotografia Indipendente\|Centro di Fotografia Indipendente]]
 
 [[Obsidian Vault/home/content/musei/The Latvian National Museum of Art\|The Latvian National Museum of Art]]
 
-[[Obsidian Vault/home/content/musei/Palazzo delle Esposizioni\|Palazzo delle Esposizioni]]
+[[Obsidian Vault/home/content/musei/Palazzo delle Esposizioni/Palazzo delle Esposizioni\|Palazzo delle Esposizioni]]
 
 [[Obsidian Vault/home/content/musei/Museo Ninfeo\|Museo Ninfeo]]
 
@@ -26,5 +26,7 @@
 
 [[Obsidian Vault/home/content/musei/Gallerie d’Italia Milano\|Gallerie d’Italia Milano]]
 
+[[Obsidian Vault/home/content/musei/Museo Archeologico Nazionale di Napoli (MAN)/Museo Archeologico Nazionale di Napoli (MAN)\|Museo Archeologico Nazionale di Napoli (MAN)]]
 
+[[Obsidian Vault/home/content/musei/WIELS/WIELS\|WIELS]]
 

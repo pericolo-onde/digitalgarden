@@ -129,12 +129,12 @@ https://www.instagram.com/epicestblorhever?igsh=MXBoc3dqNnk4ejkyaQ%3D%3D#
 
 ## minesap771
 https://www.instagram.com/minesap771/#
-![Immagine 2026-02-22wertyu174238.jpg](/img/user/Immagine%202026-02-22wertyu174238.jpg)
+![Immagine 2026-02-22wertyu174238.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-02-22wertyu174238.jpg)
 
 ## hyungbinjyeokqlabasterjinmar
 https://www.instagram.com/hyungbinjyeokqlabasterjinmar/#
-![Immagine 2026q2w3e4r5ty-02-22 174333.jpg](/img/user/Immagine%202026q2w3e4r5ty-02-22%20174333.jpg)
+![Immagine 2026q2w3e4r5ty-02-22 174333.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026q2w3e4r5ty-02-22%20174333.jpg)
 
 ## faristar.tv
 https://www.instagram.com/faristar.tv/#
-![Immagine 2026-we34r5th02-22 192159.jpg](/img/user/Immagine%202026-we34r5th02-22%20192159.jpg)
+![Immagine 2026-we34r5th02-22 192159.jpg](/img/user/Obsidian%20Vault/images/Immagine%202026-we34r5th02-22%20192159.jpg)

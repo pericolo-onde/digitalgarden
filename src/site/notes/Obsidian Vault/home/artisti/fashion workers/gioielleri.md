@@ -20,4 +20,4 @@ https://www.instagram.com/ursuuna.archive?igsh=MTJ0MHFvcDhmc2l5aQ%3D%3D#
 
 ## poppylangridgejewellery
 https://www.instagram.com/poppylangridgejewellery#
-![Immagine wdefrgterthyjhjy2026-02-22 192808.jpg](/img/user/Immagine%20wdefrgterthyjhjy2026-02-22%20192808.jpg)
+![Immagine wdefrgterthyjhjy2026-02-22 192808.jpg](/img/user/Obsidian%20Vault/images/Immagine%20wdefrgterthyjhjy2026-02-22%20192808.jpg)

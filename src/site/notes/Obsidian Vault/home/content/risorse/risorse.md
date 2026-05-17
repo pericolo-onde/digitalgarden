@@ -8,7 +8,7 @@
 
 [[Obsidian Vault/home/content/risorse/corsi online gratutiti\|corsi online gratutiti]]
 
-[[corsi cucito\|corsi cucito]]
+[[Obsidian Vault/home/content/risorse/corsi cucito\|corsi cucito]]
 
 [[Obsidian Vault/home/content/risorse/masters\|masters]]
 
@@ -48,9 +48,9 @@
 
 [[Obsidian Vault/home/content/risorse/anime sakuga shots\|anime sakuga shots]]
 
-[[free images\|free images]]
+[[Obsidian Vault/home/content/risorse/free images\|free images]]
 
-[[MAX patch\|MAX patch]]
+[[Obsidian Vault/home/content/risorse/MAX patch\|MAX patch]]
 
 
 
