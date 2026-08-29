@@ -16,6 +16,8 @@
 
 [[Obsidian Vault/home/artisti/fashion workers/cravatte\|cravatte]]
 
+[[embroidery\|embroidery]]
+
 [[Obsidian Vault/home/artisti/fashion workers/gioielleri\|gioielleri]]
 
 [[Obsidian Vault/home/artisti/fashion workers/guanti\|guanti]]
@@ -48,6 +50,9 @@ https://www.instagram.com/infimalega#
 https://www.instagram.com/nilshauser/#
 ![patty pravo tutt'WEGRHTRGEQFal più (1).jpg](/img/user/Obsidian%20Vault/images/patty%20pravo%20tutt'WEGRHTRGEQFal%20pi%C3%B9%20(1).jpg)
 
+# Rudi Gernreich 
+https://www.gettyimages.it/immagine/rudi-gernreich
+![Progetto senza titolo.webp](/img/user/Progetto%20senza%20titolo.webp)
 ## ujeel1
 https://www.instagram.com/ujeel1/#
 ![Immagine 2025-09-15 195621.png](/img/user/Obsidian%20Vault/images/Immagine%202025-09-15%20195621.png)

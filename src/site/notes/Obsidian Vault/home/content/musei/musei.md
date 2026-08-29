@@ -30,3 +30,6 @@
 
 [[Obsidian Vault/home/content/musei/WIELS/WIELS\|WIELS]]
 
+[[Obsidian Vault/home/content/musei/sardegna\|sardegna]]
+
+
